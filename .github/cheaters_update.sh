@@ -17,7 +17,7 @@ echo ${cheaters_Name[*]}
 
 echo '# AceCombat7 cheaters
 
-See `report.md` to know how to report new cheaters.
+See report.md to know how to report new cheaters.
 
 | name | steam URL |
 | ------ | ------ |' > README.md
