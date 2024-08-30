@@ -147,7 +147,7 @@
 | .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) |  |  |
 | Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
 | [ACE] RAPTOR | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
-| karzonuth | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
+| SuraSnlax | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
 | 老七 | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
