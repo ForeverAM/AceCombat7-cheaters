@@ -3,8 +3,9 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
+| Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  |  |
-| Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) |  |  |
+| Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) | Rodrigo&#32;Oliveira |  |
 | Oliveira_F | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) |  |  |
 | Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
 | Hugh G. Rection | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
