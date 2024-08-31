@@ -4,6 +4,7 @@
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
 | Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
+| Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  |  |
 | Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) | Rodrigo&#32;Oliveira |  |
 | Oliveira_F | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) |  |  |
@@ -52,7 +53,6 @@
 | 陈CXHK | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
 | madsenskyler39 | [76561199530166685](https://steamcommunity.com/profiles/76561199530166685) |  |  |
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
-| Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
 | Torero | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
 | 󠀡󠀡 | [76561199135446407](https://steamcommunity.com/profiles/76561199135446407) |  |  |
 | Moretti | [76561199117280140](https://steamcommunity.com/profiles/76561199117280140) |  |  |
