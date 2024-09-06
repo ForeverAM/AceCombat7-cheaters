@@ -3,6 +3,8 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
+| TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
+| OOXX | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | 無敵空中戰 | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | 1284829307 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) |  |  |
 | Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
@@ -17,7 +19,6 @@
 | 饺子今天毁灭世界了吗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
 | 吉他 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) |  |  |
 | 方塊酥老張 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
-| TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | ASJ | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | siz.sawaf |  |
 | shenghua3949 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) |  |  |
 | 76561198299775669 | [76561198299775669](https://steamcommunity.com/profiles/76561198299775669) |  |  |
@@ -79,7 +80,6 @@
 | Max Caulfield | [76561198101323037](https://steamcommunity.com/profiles/76561198101323037) |  |  |
 | noodle the sneck | [76561199229760980](https://steamcommunity.com/profiles/76561199229760980) |  |  |
 | MagmaDash | [76561199004004915](https://steamcommunity.com/profiles/76561199004004915) |  |  |
-| OOXX | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | ControlC | [76561198043036941](https://steamcommunity.com/profiles/76561198043036941) |  |  |
 | Skyondream | [76561199497116434](https://steamcommunity.com/profiles/76561199497116434) |  |  |
 | TheSpoodster | [76561198220391076](https://steamcommunity.com/profiles/76561198220391076) |  |  |
