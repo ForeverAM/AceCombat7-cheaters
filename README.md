@@ -32,7 +32,7 @@
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH the Introvert | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
 | goosethegooseyboose | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
-| 76561198876580116 | [76561198876580116](https://steamcommunity.com/profiles/76561198876580116) |  |  |
+| Mostri2050 | [76561198876580116](https://steamcommunity.com/profiles/76561198876580116) |  |  |
 | Kasuito2555 | [76561198359448207](https://steamcommunity.com/profiles/76561198359448207) |  |  |
 | Z-SER-0 | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
 | Baby | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
@@ -115,10 +115,10 @@
 | asennad | [76561199465912684](https://steamcommunity.com/profiles/76561199465912684) |  |  |
 | Stanstillplays | [76561198429941928](https://steamcommunity.com/profiles/76561198429941928) |  |  |
 | ysamtme | [76561198076214633](https://steamcommunity.com/profiles/76561198076214633) |  |  |
-| 76561199168111744 | [76561199168111744](https://steamcommunity.com/profiles/76561199168111744) |  |  |
+| 2781923919 | [76561199168111744](https://steamcommunity.com/profiles/76561199168111744) |  |  |
 | Ace_Mantis | [76561198301721995](https://steamcommunity.com/profiles/76561198301721995) |  |  |
 | GuiltySpark | [76561199507205763](https://steamcommunity.com/profiles/76561199507205763) |  |  |
-|  | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
+| Typhoon | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
 | La Gordah Muñones | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
 | alpha | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
 | Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
