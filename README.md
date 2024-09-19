@@ -9,7 +9,7 @@
 | 1284829307 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) |  |  |
 | Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
 | Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
-| longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  |  |
+|  | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  |  |
 | Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) | Rodrigo&#32;Oliveira |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) |  |  |
 | Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
@@ -17,7 +17,7 @@
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
 | 饺子今天毁灭世界了吗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
-| 吉他 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) |  |  |
+|  | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) |  |  |
 | 方塊酥老張 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
 | ASJ | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | siz.sawaf |  |
 | shenghua3949 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) |  |  |
