@@ -3,6 +3,9 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
+| Lacia | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) |  |  |
+| 83648990 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) |  |  |
+| な | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) |  |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | OOXX | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | 알투비리턴투베이스R2B | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
