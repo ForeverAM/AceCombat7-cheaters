@@ -69,7 +69,7 @@
 | Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
 | Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
 | Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
-| Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
+|  | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  |  |
 | MikeAboose | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
 | Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
@@ -99,7 +99,7 @@
 | Musgus | [76561198859884192](https://steamcommunity.com/profiles/76561198859884192) |  |  |
 | Scorpion King | [76561198038827316](https://steamcommunity.com/profiles/76561198038827316) |  |  |
 | 临琛 | [76561199474926894](https://steamcommunity.com/profiles/76561199474926894) | 风卷尘生 |  |
-|  | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
+| Kamu | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
 | doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
 | ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
 | 小智避开来 | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
@@ -116,7 +116,7 @@
 | 大币币 | [76561199535817299](https://steamcommunity.com/profiles/76561199535817299) |  |  |
 | OnePunchMan69 | [76561198177980518](https://steamcommunity.com/profiles/76561198177980518) |  |  |
 | Storm | [76561198917360011](https://steamcommunity.com/profiles/76561198917360011) |  |  |
-| asennad | [76561199465912684](https://steamcommunity.com/profiles/76561199465912684) |  |  |
+|  | [76561199465912684](https://steamcommunity.com/profiles/76561199465912684) |  |  |
 | Stanstillplays | [76561198429941928](https://steamcommunity.com/profiles/76561198429941928) |  |  |
 | ysamtme | [76561198076214633](https://steamcommunity.com/profiles/76561198076214633) |  |  |
 | 2781923919 | [76561199168111744](https://steamcommunity.com/profiles/76561199168111744) |  |  |
@@ -156,7 +156,7 @@
 | SuraSnlax | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
-|  | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
+| 老七 | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
 | you kick me cuz ure bad | [76561199086244180](https://steamcommunity.com/profiles/76561199086244180) |  |  |
 | Radder | [76561198084874424](https://steamcommunity.com/profiles/76561198084874424) |  |  |
 | ..&#124;.. | [76561198108197134](https://steamcommunity.com/profiles/76561198108197134) |  |  |
