@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
-| Lacia | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) |  |  |
+| Alpha Lucia | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) |  |  |
 | 알투비리턴투베이스R2B | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | 83648990 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) |  |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
