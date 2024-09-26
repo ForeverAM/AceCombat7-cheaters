@@ -5,6 +5,8 @@
 | ------ | ------ | ------ | ------ |
 | Lacia | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) |  |  |
 | 83648990 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) |  |  |
+| CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
+| 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | な | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) |  |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | OOXX | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
@@ -42,7 +44,6 @@
 | Colonel Cipher | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
 | Democratic camp's pilot Eric | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
 | jjthesteve000 | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
-| CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | ShadowGamer101st | [76561198008523364](https://steamcommunity.com/profiles/76561198008523364) | ShadowGamer101st |  |
 | 处处吻✈ | [76561198980204295](https://steamcommunity.com/profiles/76561198980204295) |  |  |
@@ -94,7 +95,6 @@
 | 밍창이 | [76561198145619796](https://steamcommunity.com/profiles/76561198145619796) |  |  |
 | Violet | [76561199140082027](https://steamcommunity.com/profiles/76561199140082027) |  |  |
 | ▲SimurG▼ | [76561199401367551](https://steamcommunity.com/profiles/76561199401367551) |  |  |
-| 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Musgus | [76561198859884192](https://steamcommunity.com/profiles/76561198859884192) |  |  |
 | Scorpion King | [76561198038827316](https://steamcommunity.com/profiles/76561198038827316) |  |  |
 | 临琛 | [76561199474926894](https://steamcommunity.com/profiles/76561199474926894) | 风卷尘生 |  |
