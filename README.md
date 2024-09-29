@@ -7,7 +7,7 @@
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
 | 알투비리턴투베이스R2B | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| 83648990 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) |  |  |
+| 空战爱好者 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) |  |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
