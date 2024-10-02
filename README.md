@@ -36,14 +36,14 @@
 | Char | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | Mihaly&#32;Dumitru&#32;A.&#32;Shilage. |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
-| Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
+|  | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH the Introvert | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
 | goosethegooseyboose | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
-| Mostri2050 | [76561198876580116](https://steamcommunity.com/profiles/76561198876580116) |  |  |
-| Kasuito2555 | [76561198359448207](https://steamcommunity.com/profiles/76561198359448207) |  |  |
+|  | [76561198876580116](https://steamcommunity.com/profiles/76561198876580116) |  |  |
+|  | [76561198359448207](https://steamcommunity.com/profiles/76561198359448207) |  |  |
 | Z-SER-0 | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
-| Baby | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
-| Colonel Cipher | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
+|  | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
+|  | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
 | Democratic camp's pilot Eric | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
 | jjthesteve000 | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
