@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
-| H1R-99 | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) |  |  |
+| やふゆる-Vtuber | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | H1R-99 |  |
 | Alpha Lucia | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
 | 알투비리턴투베이스R2B | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
