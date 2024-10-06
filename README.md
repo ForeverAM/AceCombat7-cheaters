@@ -4,15 +4,15 @@
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
 | やふゆる-Vtuber | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | H1R-99 |  |
+| samdiny00 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 空战爱好者 |  |
 | Alpha Lucia | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
 | 알투비리턴투베이스R2B | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| samdiny00 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) |  |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
-| NA | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) |  |  |
+| NA | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | OOXX | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | 1284829307 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) |  |  |
