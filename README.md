@@ -26,7 +26,7 @@
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
 | 饺子今天毁灭世界了吗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
 | 吉他 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) |  |  |
-| 方塊酥老張 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
+|  | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
 | ASJ | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | siz.sawaf |  |
 | shenghua3949 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) |  |  |
 | 76561198299775669 | [76561198299775669](https://steamcommunity.com/profiles/76561198299775669) |  |  |
@@ -62,7 +62,7 @@
 | 陈CXHK | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
 | madsenskyler39 | [76561199530166685](https://steamcommunity.com/profiles/76561199530166685) |  |  |
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
-| Torero | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
+|  | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
 | 󠀡󠀡 | [76561199135446407](https://steamcommunity.com/profiles/76561199135446407) |  |  |
 | Moretti | [76561199117280140](https://steamcommunity.com/profiles/76561199117280140) |  |  |
 | 老司鸡 | [76561198443132230](https://steamcommunity.com/profiles/76561198443132230) |  |  |
@@ -155,7 +155,7 @@
 | .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) |  |  |
 | Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
 | [ACE] RAPTOR | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
-| SuraSnlax | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
+|  | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
 | 老七 | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
