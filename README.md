@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
-| やふゆる-Vtuber | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | H1R-99 |  |
+| やふゆる_Vtuber | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | H1R-99 |  |
 | samdiny00 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 空战爱好者 |  |
 | Alpha Lucia | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
