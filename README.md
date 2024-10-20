@@ -15,7 +15,7 @@
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
-| NA | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
+| な | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | OOXX | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | 1284829307 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) |  |  |
