@@ -4,6 +4,8 @@
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
 | Project | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 空战爱好者 |  |
+| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  |  |
+| 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | やふゆる_Vtuber | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | H1R-99 |  |
 | jayrose4935 | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
@@ -75,7 +77,6 @@
 | Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
 | Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
 | Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
-| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  |  |
 | MikeAboose | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
 | Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
 | JudgeDredd | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
