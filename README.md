@@ -43,18 +43,18 @@
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
 | Char | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | Mihaly&#32;Dumitru&#32;A.&#32;Shilage. |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
-| el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
-| Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
-| NH the Introvert | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
-| goosethegooseyboose | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
-| Mostri2050 | [76561198876580116](https://steamcommunity.com/profiles/76561198876580116) |  |  |
-| Kasuito2555 | [76561198359448207](https://steamcommunity.com/profiles/76561198359448207) |  |  |
-| Z-SER-0 | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
-| Baby | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
-| Colonel Cipher | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
-| Democratic camp's pilot Eric | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
-| jjthesteve000 | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
-| RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
+|  | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
+|  | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
+|  | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
+|  | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
+|  | [76561198876580116](https://steamcommunity.com/profiles/76561198876580116) |  |  |
+|  | [76561198359448207](https://steamcommunity.com/profiles/76561198359448207) |  |  |
+|  | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
+|  | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
+|  | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
+|  | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
+|  | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
+|  | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | ShadowGamer101st | [76561198008523364](https://steamcommunity.com/profiles/76561198008523364) | ShadowGamer101st |  |
 | 处处吻✈ | [76561198980204295](https://steamcommunity.com/profiles/76561198980204295) |  |  |
 | Aerospace8 | [76561198117229678](https://steamcommunity.com/profiles/76561198117229678) |  |  |
@@ -146,7 +146,7 @@
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
 | 1654391949 | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
 | CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
-|  | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
+| JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
 | /aceg/ armoredgarmr | [76561198077024574](https://steamcommunity.com/profiles/76561198077024574) | armoredgarmr |  |
 | Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  |  |
 | Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
