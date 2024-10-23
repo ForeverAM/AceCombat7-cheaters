@@ -43,7 +43,7 @@
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
-| NH the Introvert | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
+| 76561198055477808 | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
 | goosethegooseyboose | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
 | Mostri2050 | [76561198876580116](https://steamcommunity.com/profiles/76561198876580116) |  |  |
 | Kasuito2555 | [76561198359448207](https://steamcommunity.com/profiles/76561198359448207) |  |  |
