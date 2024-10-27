@@ -6,6 +6,7 @@
 | Project | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 空战爱好者 |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
+| LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
 | YellowCrazyANt | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
 | ♥Oriana♥ | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) |  |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
@@ -118,7 +119,6 @@
 | Ronin Eternal | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  |  |
 | 夕阳武士与狗， | [76561198294378412](https://steamcommunity.com/profiles/76561198294378412) |  |  |
-| LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
 | ConfidentlyWrong | [76561198982424786](https://steamcommunity.com/profiles/76561198982424786) |  |  |
 | 大币币 | [76561199535817299](https://steamcommunity.com/profiles/76561199535817299) |  |  |
 | OnePunchMan69 | [76561198177980518](https://steamcommunity.com/profiles/76561198177980518) |  |  |
