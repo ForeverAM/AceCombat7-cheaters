@@ -5,6 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Project | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 空战爱好者 |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  |  |
+| Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | YellowCrazyANt | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
 | ♥Oriana♥ | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) |  |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
@@ -42,7 +43,6 @@
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
 | Char | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | Mihaly&#32;Dumitru&#32;A.&#32;Shilage. |  |
-| Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH the Introvert | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
