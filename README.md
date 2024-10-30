@@ -80,16 +80,16 @@
 | Overlord | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
 | RED-DAX-XIII | [76561198345323408](https://steamcommunity.com/profiles/76561198345323408) |  |  |
 | Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
-| Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
-| Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
-| Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
-| MikeAboose | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
-| Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
-| JudgeDredd | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
-| minakosenpai | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
-| Teniente Muffin | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
-| The Author | [76561198881741459](https://steamcommunity.com/profiles/76561198881741459) |  |  |
-| rudukwc13 | [76561199223936931](https://steamcommunity.com/profiles/76561199223936931) |  |  |
+|  | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
+|  | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
+|  | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
+|  | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
+|  | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
+|  | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
+|  | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
+|  | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
+|  | [76561198881741459](https://steamcommunity.com/profiles/76561198881741459) |  |  |
+|  | [76561199223936931](https://steamcommunity.com/profiles/76561199223936931) |  |  |
 | ATLAS | [76561198930833258](https://steamcommunity.com/profiles/76561198930833258) |  |  |
 | kimono | [76561199373637935](https://steamcommunity.com/profiles/76561199373637935) |  |  |
 | 葫芦岛盗号王:杨昊 | [76561199002216348](https://steamcommunity.com/profiles/76561199002216348) | 蜡笔小蟹 |  |
