@@ -3,8 +3,10 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
+| Archer 1 Burns | [76561198123776649](https://steamcommunity.com/profiles/76561198123776649) | Archer&#32;1&#32;Burns |  |
+| ASETRI 2 PAN | [76561198354392863](https://steamcommunity.com/profiles/76561198354392863) | ASETRI&#32;2&#32;PAN |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
-| Project | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 空战爱好者 |  |
+| Project | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
