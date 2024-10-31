@@ -8,14 +8,14 @@
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
 | Project | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  |  |
-| Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
-| LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
-| YellowCrazyANt | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
-| ♥Oriana♥ | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) |  |  |
-| 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
-| オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+|  | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
+|  | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
+|  | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
+|  | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) |  |  |
+|  | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
+|  | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | やふゆる_Vtuber | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | H1R-99 |  |
-| Yellow 13 | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
+|  | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
 | 小智避开来 | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
 | Alpha Lucia | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
