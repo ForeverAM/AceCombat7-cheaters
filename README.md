@@ -114,7 +114,7 @@
 | doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
 | ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
 | Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
-| Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
+|  | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
 | 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
 | Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
 | spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
