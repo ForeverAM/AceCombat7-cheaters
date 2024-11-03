@@ -45,7 +45,7 @@
 | Malkars | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
-| John Helldiver 1ST GALACTIC WAR | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | Mihaly&#32;Dumitru&#32;A.&#32;Shilage. |  |
+| 碧涵 | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | Mihaly&#32;Dumitru&#32;A.&#32;Shilage. |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH the Introvert | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
