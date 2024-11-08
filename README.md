@@ -16,7 +16,7 @@
 | Ich bin eine Biene &lt;3 | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| やふゆる_Vtuber | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | H1R-99 |  |
+| ベースは顔で弾け | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | H1R-99 |  |
 | Yellow 13 | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
 | 小智避开来 | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
