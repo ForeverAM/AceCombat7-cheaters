@@ -3,6 +3,8 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
+| YppahnU | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) |  |  |
+| Playboy·S | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
 | 东栩 | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
 | The Harbinger of Death | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
