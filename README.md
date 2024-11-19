@@ -10,7 +10,7 @@
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | ASJ | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | siz.sawaf |  |
-| xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
+|  | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
 | 본 채널에 업로드 된 영 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
@@ -19,7 +19,7 @@
 | ☢Resistence☢ | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| ベースは顔で弾け | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | やふゆる_Vtuber |  |
+|  | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | やふゆる_Vtuber |  |
 | Yellow 13 | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
 | 小智避开来 | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
@@ -29,24 +29,24 @@
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
-| な | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
+| 76561198869878353 | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | OOXX | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | 1284829307 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) |  |  |
 | Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
 | Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
-| longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  |  |
+|  | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  |  |
 | Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) |  |  |
 | Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
-| 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
-| 饺子今天毁灭世界了吗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
+|  | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
+|  | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
 | 敷衍大王 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) |  |  |
 | 方塊酥老張 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
 | shenghua3949 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) |  |  |
 | 76561198299775669 | [76561198299775669](https://steamcommunity.com/profiles/76561198299775669) |  |  |
-| caonimeigu | [76561199361973029](https://steamcommunity.com/profiles/76561199361973029) |  |  |
+|  | [76561199361973029](https://steamcommunity.com/profiles/76561199361973029) |  |  |
 | Malkars | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
@@ -54,7 +54,7 @@
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH the Introvert | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
-| goosethegooseyboose | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
+|  | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
 | Mostri2050 | [76561198876580116](https://steamcommunity.com/profiles/76561198876580116) |  |  |
 | Kasuito2555 | [76561198359448207](https://steamcommunity.com/profiles/76561198359448207) |  |  |
 | Z-SER-0 | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
@@ -134,7 +134,7 @@
 | Stanstillplays | [76561198429941928](https://steamcommunity.com/profiles/76561198429941928) |  |  |
 | ysamtme | [76561198076214633](https://steamcommunity.com/profiles/76561198076214633) |  |  |
 | 2781923919 | [76561199168111744](https://steamcommunity.com/profiles/76561199168111744) |  |  |
-| Ace_Mantis | [76561198301721995](https://steamcommunity.com/profiles/76561198301721995) |  |  |
+|  | [76561198301721995](https://steamcommunity.com/profiles/76561198301721995) |  |  |
 | GuiltySpark | [76561199507205763](https://steamcommunity.com/profiles/76561199507205763) |  |  |
 | Typhoon | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
 | La Gordah Muñones | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
