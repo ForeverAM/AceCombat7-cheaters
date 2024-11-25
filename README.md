@@ -45,7 +45,7 @@
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
 | 你说得对，但是我为小队找到了材料 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
-| 敷衍大王 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) |  |  |
+| 我不是赌神 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) |  |  |
 | 方塊酥老張 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
 | shenghua3949 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) |  |  |
 | 76561198299775669 | [76561198299775669](https://steamcommunity.com/profiles/76561198299775669) |  |  |
