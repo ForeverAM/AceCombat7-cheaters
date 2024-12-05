@@ -40,7 +40,7 @@
 | 1284829307 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) |  |  |
 | Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
 | Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
-| longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  |  |
+|  | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  |  |
 | Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) |  |  |
 | Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
