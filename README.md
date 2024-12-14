@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
-| why you so noob | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
+| pillia | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
