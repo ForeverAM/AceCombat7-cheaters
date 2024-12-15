@@ -3,6 +3,7 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
+| zakaclase | [76561198240455784](https://steamcommunity.com/profiles/76561198240455784) |  |  |
 | pillia | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
