@@ -70,7 +70,7 @@
 | Z-SER-0 | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
 | Baby | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
 | Colonel Cipher | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
-| 看来我不能离开我的战场, 一天都不能 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
+| 或许在民主国家过富裕生活的人都不想打仗 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
 | jjthesteve000 | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | ShadowGamer101st | [76561198008523364](https://steamcommunity.com/profiles/76561198008523364) | ShadowGamer101st |  |
