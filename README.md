@@ -3,6 +3,7 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
+| LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | 老七 | [76561198162143609](https://steamcommunity.com/profiles/76561198162143609) |  |  |
 | zakaclase | [76561198240455784](https://steamcommunity.com/profiles/76561198240455784) |  |  |
 | 7325193162 | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
