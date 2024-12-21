@@ -72,7 +72,7 @@
 | Z-SER-0 | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
 | Baby | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
 | Colonel Cipher | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
-| 美国有那么多钻地弹,为什么不到平壤试试效果 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
+| 越南会向世界证明,没有劣等人种,只有劣等制度 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
 | jjthesteve000 | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | ShadowGamer101st | [76561198008523364](https://steamcommunity.com/profiles/76561198008523364) | ShadowGamer101st |  |
