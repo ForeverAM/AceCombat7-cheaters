@@ -5,6 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | 官本武藏 | [76561199509409670](https://steamcommunity.com/profiles/76561199509409670) |  |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
 | why？ | [76561198799783195](https://steamcommunity.com/profiles/76561198799783195) |  |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | 老七 | [76561198162143609](https://steamcommunity.com/profiles/76561198162143609) |  |  |
@@ -52,7 +53,6 @@
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  |  |
 | Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) |  |  |
 | Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
-| Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
 | 你说得对，但是我为小队找到了材料 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
@@ -168,7 +168,7 @@
 | CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
 | JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
 | /aceg/ armoredgarmr | [76561198077024574](https://steamcommunity.com/profiles/76561198077024574) | armoredgarmr |  |
-| Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  |  |
+| Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Very&#32;bad |
 | Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
 | iRatman_ | [76561198092502120](https://steamcommunity.com/profiles/76561198092502120) |  |  |
 | Deliver Us | [76561198043433411](https://steamcommunity.com/profiles/76561198043433411) |  |  |
