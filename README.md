@@ -3,6 +3,8 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
+| alexverissimo363 | [76561198830427352](https://steamcommunity.com/profiles/76561198830427352) |  |  |
+| shmn | [76561198311019610](https://steamcommunity.com/profiles/76561198311019610) | 2096910154 |  |
 | 官本武藏 | [76561199509409670](https://steamcommunity.com/profiles/76561199509409670) |  |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
@@ -15,7 +17,6 @@
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
-| shmn | [76561198311019610](https://steamcommunity.com/profiles/76561198311019610) | 2096910154 |  |
 | Need for Airspeed | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | YellowCrazyANt | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
 | Parfuh | [76561199079126751](https://steamcommunity.com/profiles/76561199079126751) |  |  |
