@@ -3,6 +3,8 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
+| quijada_2212 | [76561199194351688](https://steamcommunity.com/profiles/76561199194351688) |  |  |
+| Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | alexverissimo363 | [76561198830427352](https://steamcommunity.com/profiles/76561198830427352) |  |  |
 | shmn | [76561198311019610](https://steamcommunity.com/profiles/76561198311019610) | 2096910154 |  |
 | 官本武藏 | [76561199509409670](https://steamcommunity.com/profiles/76561199509409670) |  |  |
@@ -32,7 +34,6 @@
 | ASJ | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | siz.sawaf |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
 | 본 채널에 업로드 된 영 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
-| Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
