@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
-| 7414539654 | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
+| tri | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
 | *****isarubbish54188 | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
 | YellowCrazyANt | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
 | xavacela | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) |  |  |
