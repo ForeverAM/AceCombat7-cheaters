@@ -59,7 +59,7 @@
 | Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
-| 你说得对，但是我为小队找到了材料 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
+| 体弱多病172艺术生 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
 | 吉他 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) | 吉他 |  |
 | 方塊酥老張 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
 | 反政府武装 | [76561198003231591](https://steamcommunity.com/profiles/76561198003231591) | shenghua3949 |  |
@@ -78,7 +78,7 @@
 | Z-SER-0 | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
 | Baby | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
 | Colonel Cipher | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
-| 即要维护民意,也要维护法制,所以折中判 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
+| 李在明就是韩国的灾星，因为他亲独裁国家 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
 | jjthesteve000 | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | ShadowGamer101st | [76561198008523364](https://steamcommunity.com/profiles/76561198008523364) | ShadowGamer101st |  |
