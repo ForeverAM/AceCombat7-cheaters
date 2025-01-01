@@ -85,7 +85,7 @@
 | 处处吻✈ | [76561198980204295](https://steamcommunity.com/profiles/76561198980204295) |  |  |
 | Aerospace8 | [76561198117229678](https://steamcommunity.com/profiles/76561198117229678) |  |  |
 | DJmax | [76561199581609988](https://steamcommunity.com/profiles/76561199581609988) |  |  |
-| Pingu | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | ND-HE |  |
+|  | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | ND-HE |  |
 | YMB_GRIM REAPERS | [76561199501593849](https://steamcommunity.com/profiles/76561199501593849) |  |  |
 | 我爱黑暗斯克里尔 321 | [76561199154859343](https://steamcommunity.com/profiles/76561199154859343) | KRSW&#32;Lord |  |
 | 1095033923 | [76561198358276789](https://steamcommunity.com/profiles/76561198358276789) |  |  |
