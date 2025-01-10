@@ -30,7 +30,7 @@
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
 | E m z y y | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) |  |  |
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
-| zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
+|  | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
 | 蓝色恶魔阿洛娜 | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
 | Playboy·S | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
 | 东栩 | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
