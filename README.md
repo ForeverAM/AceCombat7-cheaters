@@ -32,18 +32,18 @@
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
 | zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
 | 蓝色恶魔阿洛娜 | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
-|  | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
-|  | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
-|  | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
-|  | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
-|  | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | siz.sawaf |  |
-|  | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
-|  | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
-|  | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
-|  | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
-|  | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | やふゆる_Vtuber |  |
-|  | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
-|  | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
+| Playboy·S | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
+| 东栩 | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
+| The Harbinger of Death | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
+| heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
+| ASJ | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | siz.sawaf |  |
+| xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
+| 본 채널에 업로드 된 영 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
+| LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
+| 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
+| ベースは顔で弾け | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | やふゆる_Vtuber |  |
+| Yellow 13 | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
+| 小智避开来 | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
 | Alpha Lucia | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
