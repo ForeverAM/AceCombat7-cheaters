@@ -12,14 +12,14 @@
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | xavacela | Very&#32;bad |
 | 黒川明人 | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
-| *****isarubbish54188 | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
-| YellowCrazyANt | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
-| quijada_2212 | [76561199194351688](https://steamcommunity.com/profiles/76561199194351688) |  |  |
-| Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
-| alexverissimo363 | [76561198830427352](https://steamcommunity.com/profiles/76561198830427352) |  |  |
-| 圣劳伦斯 | [76561198311019610](https://steamcommunity.com/profiles/76561198311019610) | 2096910154 |  |
-| 官本武藏 | [76561199509409670](https://steamcommunity.com/profiles/76561199509409670) |  |  |
-| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+|  | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
+|  | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
+|  | [76561199194351688](https://steamcommunity.com/profiles/76561199194351688) |  |  |
+|  | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
+|  | [76561198830427352](https://steamcommunity.com/profiles/76561198830427352) |  |  |
+|  | [76561198311019610](https://steamcommunity.com/profiles/76561198311019610) | 2096910154 |  |
+|  | [76561199509409670](https://steamcommunity.com/profiles/76561199509409670) |  |  |
+|  | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
 | why？ | [76561198799783195](https://steamcommunity.com/profiles/76561198799783195) |  |  |
 | 老七 | [76561198162143609](https://steamcommunity.com/profiles/76561198162143609) |  |  |
