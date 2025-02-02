@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
-| 承谕 | [76561198972325682](https://steamcommunity.com/profiles/76561198972325682) |  |  |
+| Bishop | [76561198972325682](https://steamcommunity.com/profiles/76561198972325682) |  |  |
 | YMB_GRIM REAPERS | [76561199501593849](https://steamcommunity.com/profiles/76561199501593849) |  |  |
 | URUGUAYO1985 | [76561199145458014](https://steamcommunity.com/profiles/76561199145458014) |  |  |
 | POLA97X | [76561198356113029](https://steamcommunity.com/profiles/76561198356113029) |  |  |
