@@ -12,7 +12,7 @@
 | cdot2rap | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
 | Bread | [76561199096257101](https://steamcommunity.com/profiles/76561199096257101) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| Johnny The F-16C | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | xavacela | Very&#32;bad |
+| Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | xavacela | Very&#32;bad |
 | Osicco | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
 | *****isarubbish54188 | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
 | YellowCrazyANt | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
