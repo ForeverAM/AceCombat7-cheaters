@@ -3,7 +3,8 @@
 
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
-| Bishop | [76561198972325682](https://steamcommunity.com/profiles/76561198972325682) |  |  |
+| The king of air warfare | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
+| Crimson 1 | [76561198095972461](https://steamcommunity.com/profiles/76561198095972461) | GUYS,sally,go!&#32;-GIG! |  |
 | alanchan999 | [76561198068539704](https://steamcommunity.com/profiles/76561198068539704) |  |  |
 | YMB_GRIM REAPERS | [76561199501593849](https://steamcommunity.com/profiles/76561199501593849) |  |  |
 | URUGUAYO1985 | [76561199145458014](https://steamcommunity.com/profiles/76561199145458014) |  |  |
@@ -13,7 +14,7 @@
 | cdot2rap | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
 | Bread | [76561199096257101](https://steamcommunity.com/profiles/76561199096257101) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| CaptainAdmi | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | xavacela | Very&#32;bad |
+| CaptainAdmi | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | Osicco | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
 | *****isarubbish54188 | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
 | YellowCrazyANt | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
@@ -53,7 +54,6 @@
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
 | ๋ | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
-| The king of air warfare | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
