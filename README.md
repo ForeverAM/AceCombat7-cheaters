@@ -33,7 +33,7 @@
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
-| Flavius | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
+| Dürüm | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | Parfuh | [76561199079126751](https://steamcommunity.com/profiles/76561199079126751) |  |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
 | E m z y y | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) |  |  |
@@ -87,7 +87,7 @@
 | Z-SER-0 | [76561199214790001](https://steamcommunity.com/profiles/76561199214790001) | ViperZER0 |  |
 | Baby | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
 | Colonel Cipher | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
-| 怂恿美国大兵殴打韩国人属于群体性做恶 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
+| 他们印了三百万亿,可农村养老金依旧105元/月 | [76561198144072073](https://steamcommunity.com/profiles/76561198144072073) | zhuonghui0001 |  |
 | jjthesteve000 | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | ShadowGamer101st | [76561198008523364](https://steamcommunity.com/profiles/76561198008523364) | ShadowGamer101st |  |
