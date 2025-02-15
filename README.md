@@ -4,6 +4,7 @@
 | Name | Steam URL ID | Ailases | Note |
 | ------ | ------ | ------ | ------ |
 | TOURNAMENT | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
+| ASJ | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | siz.sawaf |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
 | 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
@@ -48,7 +49,6 @@
 | 东栩 | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
 | The Harbinger of Death | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
-| ASJ | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | siz.sawaf |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
 | 본 채널에 업로드 된 영 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
