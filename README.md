@@ -10,7 +10,7 @@
 | 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
 | Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
 | Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
-| Szw | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
+| leone | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | The king of air warfare | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | Crimson 1 | [76561198095972461](https://steamcommunity.com/profiles/76561198095972461) | GUYS,sally,go!&#32;-GIG! |  |
