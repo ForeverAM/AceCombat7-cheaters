@@ -5,6 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Start | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | 3Isakim | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ |  |
+| Demon Lord | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
 | f1shift | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
