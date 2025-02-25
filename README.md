@@ -5,6 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Start | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | 3Isakim | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ |  |
+| powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
 | noahbenji | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) |  |  |
 | Demon Lord | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
 | f1shift | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
