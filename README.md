@@ -6,6 +6,7 @@
 | Start | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | 3Isakim | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ |  |
 | Parfuh | [76561199079126751](https://steamcommunity.com/profiles/76561199079126751) |  |  |
+| Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
 | noahbenji | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) |  |  |
 | Demon Lord | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
@@ -14,7 +15,6 @@
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
 | 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
-| Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
 | Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
 | Mauri | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
