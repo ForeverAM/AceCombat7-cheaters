@@ -1,7 +1,7 @@
 # AceCombat7 cheaters
 
 
-| Name | Steam URL ID | Ailases | Note |
+| Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
 | Start | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
