@@ -5,6 +5,8 @@
 | ------ | ------ | ------ | ------ |
 | Start | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
+| is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
+| Brundy13 | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
 | 3Isakim | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ |  |
 | Parfuh | [76561199079126751](https://steamcommunity.com/profiles/76561199079126751) |  |  |
 | Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
@@ -18,7 +20,6 @@
 | 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
 | Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
 | mind | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
-| is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | The king of air warfare | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | Crimson 1 | [76561198095972461](https://steamcommunity.com/profiles/76561198095972461) | GUYS,sally,go!&#32;-GIG! |  |
 | alanchan999 | [76561198068539704](https://steamcommunity.com/profiles/76561198068539704) |  |  |
