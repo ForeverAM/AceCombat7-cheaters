@@ -144,7 +144,7 @@
 | master1337 | [76561198107387037](https://steamcommunity.com/profiles/76561198107387037) |  |  |
 | 龙若琳 | [76561198955687025](https://steamcommunity.com/profiles/76561198955687025) |  |  |
 | 밍창이 | [76561198145619796](https://steamcommunity.com/profiles/76561198145619796) |  |  |
-|  | [76561199140082027](https://steamcommunity.com/profiles/76561199140082027) |  |  |
+| Violet | [76561199140082027](https://steamcommunity.com/profiles/76561199140082027) |  |  |
 | ▲SimurG▼ 20cm | [76561199401367551](https://steamcommunity.com/profiles/76561199401367551) |  |  |
 | Musgus | [76561198859884192](https://steamcommunity.com/profiles/76561198859884192) |  |  |
 | Scorpion King | [76561198038827316](https://steamcommunity.com/profiles/76561198038827316) |  |  |
