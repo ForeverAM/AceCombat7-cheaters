@@ -21,7 +21,7 @@
 | Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
 | 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
 | Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
-| DoraDX | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
+| Blisc | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
 | 스쳤다하면 명중 F-15K | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | Crimson 1 | [76561198095972461](https://steamcommunity.com/profiles/76561198095972461) | GUYS,sally,go!&#32;-GIG! |  |
 | alanchan999 | [76561198068539704](https://steamcommunity.com/profiles/76561198068539704) |  |  |
