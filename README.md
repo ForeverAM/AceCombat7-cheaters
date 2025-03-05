@@ -6,7 +6,7 @@
 | Start | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
 | kmjoyin | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ |  |
-| 翷月Dr·Linyue | [76561198841658471](https://steamcommunity.com/profiles/76561198841658471) |  |  |
+| 翷月Dr·Linyue | [76561198841658471](https://steamcommunity.com/profiles/76561198841658471) |  | Very&#32;bad |
 | RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
 | Azrael | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) |  |  |
