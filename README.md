@@ -11,7 +11,7 @@
 | Dr.Kepler | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | Brundy13 | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
-| 3Isakim | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ |  |
+|  | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ |  |
 | Parfuh | [76561199079126751](https://steamcommunity.com/profiles/76561199079126751) |  |  |
 | Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
