@@ -9,7 +9,7 @@
 | 翷月Dr·Linyue | [76561198841658471](https://steamcommunity.com/profiles/76561198841658471) |  | Very&#32;bad |
 | M. Félix | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
 | RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
-|  | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
+| Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
 | Azrael | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) |  |  |
 | skywY | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) |  |  |
 | 刻苦练狙的肯尼迪 | [76561199220489238](https://steamcommunity.com/profiles/76561199220489238) |  |  |
@@ -35,7 +35,7 @@
 | URUGUAYO1985 | [76561199145458014](https://steamcommunity.com/profiles/76561199145458014) |  |  |
 | POLA97X | [76561198356113029](https://steamcommunity.com/profiles/76561198356113029) |  |  |
 | Predator | [76561199505002057](https://steamcommunity.com/profiles/76561199505002057) | 情报员老秦 |  |
-|  | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
+| LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | cdot2rap | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
 | Bread | [76561199096257101](https://steamcommunity.com/profiles/76561199096257101) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
@@ -43,14 +43,14 @@
 | YellowCrazyANt | [76561198156733732](https://steamcommunity.com/profiles/76561198156733732) | YellowCrazyANt |  |
 | quijada_2212 | [76561199194351688](https://steamcommunity.com/profiles/76561199194351688) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
-|  | [76561198830427352](https://steamcommunity.com/profiles/76561198830427352) |  |  |
+| alexverissimo363 | [76561198830427352](https://steamcommunity.com/profiles/76561198830427352) |  |  |
 | 官本武藏 | [76561199509409670](https://steamcommunity.com/profiles/76561199509409670) |  |  |
-|  | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
-|  | [76561198799783195](https://steamcommunity.com/profiles/76561198799783195) |  |  |
+| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| why？ | [76561198799783195](https://steamcommunity.com/profiles/76561198799783195) |  |  |
 | 老七 | [76561198162143609](https://steamcommunity.com/profiles/76561198162143609) |  |  |
 | zakaclase | [76561198240455784](https://steamcommunity.com/profiles/76561198240455784) |  |  |
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
-|  | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
+| Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
 | Dürüm | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
@@ -71,7 +71,7 @@
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
 | ๋ | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
-|  | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
+| CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
 | な | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
@@ -103,7 +103,7 @@
 | Baby | [76561198349602018](https://steamcommunity.com/profiles/76561198349602018) | K0T3TSU |  |
 | Colonel Cipher | [76561198074076241](https://steamcommunity.com/profiles/76561198074076241) | Colonel&#32;Cipher |  |
 | jjthesteve000 | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
-|  | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
+| RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | ShadowGamer101st | [76561198008523364](https://steamcommunity.com/profiles/76561198008523364) | ShadowGamer101st |  |
 | 处处吻✈ | [76561198980204295](https://steamcommunity.com/profiles/76561198980204295) |  |  |
 | Aerospace8 | [76561198117229678](https://steamcommunity.com/profiles/76561198117229678) |  |  |
@@ -122,7 +122,7 @@
 | 老司鸡 | [76561198443132230](https://steamcommunity.com/profiles/76561198443132230) |  |  |
 | Overlord | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
 | RED-DAX-XIII | [76561198345323408](https://steamcommunity.com/profiles/76561198345323408) |  |  |
-|  | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
+| Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
 | Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
 | Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
 | Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
@@ -195,9 +195,9 @@
 | JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
 | Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Very&#32;bad |
 | Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
-|  | [76561198092502120](https://steamcommunity.com/profiles/76561198092502120) |  |  |
+| iRatman_ | [76561198092502120](https://steamcommunity.com/profiles/76561198092502120) |  |  |
 | Deliver Us | [76561198043433411](https://steamcommunity.com/profiles/76561198043433411) |  |  |
-|  | [76561198030697690](https://steamcommunity.com/profiles/76561198030697690) |  |  |
+| JAIGAYRAY | [76561198030697690](https://steamcommunity.com/profiles/76561198030697690) |  |  |
 | 清风班春 | [76561198938976695](https://steamcommunity.com/profiles/76561198938976695) |  |  |
 | jackykh | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
 | 180 | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
@@ -213,7 +213,7 @@
 | Radder | [76561198084874424](https://steamcommunity.com/profiles/76561198084874424) |  |  |
 | WisdomTong | [76561198407886594](https://steamcommunity.com/profiles/76561198407886594) |  |  |
 | ATHOOD | [76561198101337488](https://steamcommunity.com/profiles/76561198101337488) |  |  |
-|  | [76561198851216499](https://steamcommunity.com/profiles/76561198851216499) |  |  |
+| 一个不正经的老头 | [76561198851216499](https://steamcommunity.com/profiles/76561198851216499) |  |  |
 | &lt;font color=rpg#FF3030&gt;Vigoss | [76561198078057512](https://steamcommunity.com/profiles/76561198078057512) |  |  |
 | 武破千軍 | [76561198076137075](https://steamcommunity.com/profiles/76561198076137075) |  |  |
 | Alipapa | [76561199032447430](https://steamcommunity.com/profiles/76561199032447430) |  |  |
