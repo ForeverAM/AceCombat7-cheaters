@@ -7,7 +7,6 @@
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
 | kmjoyin | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | 翷月Dr·Linyue | [76561198841658471](https://steamcommunity.com/profiles/76561198841658471) |  | Very&#32;bad |
-| Tempesoar | [76561198107297344](https://steamcommunity.com/profiles/76561198107297344) |  |  |
 | Dreamcatcher | [76561199233210122](https://steamcommunity.com/profiles/76561199233210122) |  |  |
 | VF | [76561198026812263](https://steamcommunity.com/profiles/76561198026812263) |  |  |
 | M. Félix | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
