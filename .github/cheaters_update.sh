@@ -17,14 +17,14 @@ do
 		len=`expr index "${cheater:18}" ｜`
 		cheaters_Comment[$i]=${cheater:18:len-1}
 		Alias=${cheater:len+18}
-		cheaters_Aliases[$i]=${Alias/|/&#124;}
-		cheaters_Name[$i]=${Name/|/&#124;}
+		cheaters_Aliases[$i]=${Alias/|/\\|}
+		cheaters_Name[$i]=${Name/|/\\|}
 
 	else
 		Name=`curl -L https://steamcommunity.com/profiles/$cheater |grep 'class="actual_persona_name"' |head -1 |awk -F'>|<' '{print $3}'`
 		cheaters_Aliases[$i]=''
 		cheaters_Comment[$i]=''
-		cheaters_Name[$i]=${Name/|/&#124;}
+		cheaters_Name[$i]=${Name/|/\\|}
 	fi
 
 	let 'i++'
