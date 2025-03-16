@@ -4,12 +4,13 @@
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
 | Johnny The F-16 | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
-| longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
 | kmjoyin | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
+| 特雷森食堂第一突破手 | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
 | Brundy13 | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
 | I am trash | [76561199207878242](https://steamcommunity.com/profiles/76561199207878242) |  |  |
 | k4d | [76561198453452152](https://steamcommunity.com/profiles/76561198453452152) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+| longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
 | 1027399085 | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
 | ryoichi.sakata | [76561198992622959](https://steamcommunity.com/profiles/76561198992622959) |  |  |
 | Thalavendea | [76561198841658471](https://steamcommunity.com/profiles/76561198841658471) | 翷月Dr·Linyue |  |
