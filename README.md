@@ -4,7 +4,7 @@
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
 | Johnny The F-16 | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
-| barasan | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
+| kimhjin | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Mej.Fikri Iskandar | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) |  |  |
 | 特雷森食堂第一突破手 | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
 | Brundy13 | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
