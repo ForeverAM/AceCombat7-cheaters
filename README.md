@@ -70,7 +70,7 @@
 | 东栩 | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
 | The Harbinger of Death | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
-| 본 채널에 업로드 된 영 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
+| wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
 | ベースは顔で弾け | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | やふゆる_Vtuber |  |
