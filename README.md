@@ -12,7 +12,7 @@
 | k4d | [76561198453452152](https://steamcommunity.com/profiles/76561198453452152) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
-| 1027399085 | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
+| Rin | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
 | ryoichi.sakata | [76561198992622959](https://steamcommunity.com/profiles/76561198992622959) |  |  |
 | Thalavendea | [76561198841658471](https://steamcommunity.com/profiles/76561198841658471) | 翷月Dr·Linyue |  |
 | Dreamcatcher | [76561199233210122](https://steamcommunity.com/profiles/76561199233210122) |  |  |
