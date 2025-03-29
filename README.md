@@ -67,7 +67,7 @@
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
 | Horus | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
-| Live on TikTok @mazokist | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) |  |  |
+| Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) |  |  |
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
 | zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
 | NekoHacker | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
