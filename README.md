@@ -5,7 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | sviawad | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
-| Supermaneuverable A-10 | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) |  |  |
+| ★ | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) |  |  |
 | KatLuci | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
 | aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
 | Dawid49 | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) |  |  |
@@ -107,7 +107,7 @@
 | Malkars | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
-| Comandante José Miguel | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
+| BRUNITO | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH the Introvert | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
