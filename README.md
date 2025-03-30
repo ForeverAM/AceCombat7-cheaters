@@ -6,7 +6,7 @@
 | Dry Docks | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | sviawad | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | chan963 | [76561198098057946](https://steamcommunity.com/profiles/76561198098057946) |  |  |
-| ★ | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) |  | Supermaneuverable&#32;A-10 |
+| ★ | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Supermaneuverable&#32;A-10 |  |
 | KatLuci | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
 | aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
 | Dawid49 | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) |  |  |
