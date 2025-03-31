@@ -15,7 +15,7 @@
 | Yvonne | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) |  |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | Mej.Fikri Iskandar | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) |  |  |
-| 特雷森食堂第一突破手 | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
+|  | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
 | Brundy13 | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
 | I am trash | [76561199207878242](https://steamcommunity.com/profiles/76561199207878242) |  |  |
 | k4d | [76561198453452152](https://steamcommunity.com/profiles/76561198453452152) |  |  |
