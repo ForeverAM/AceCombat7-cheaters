@@ -37,7 +37,6 @@
 | Endless Space | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | Dr.Kepler | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
-| Parfuh | [76561199079126751](https://steamcommunity.com/profiles/76561199079126751) |  |  |
 | Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
 | Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
