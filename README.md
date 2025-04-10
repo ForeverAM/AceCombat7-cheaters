@@ -5,6 +5,8 @@
 | ------ | ------ | ------ | ------ |
 | Johnny Carry | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | affwa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
+| Pan \| Demon Star | [76561198354392863](https://steamcommunity.com/profiles/76561198354392863) |  | high&#32;maneuverability |
+| Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
 | LaPanne Motors | [76561198368764423](https://steamcommunity.com/profiles/76561198368764423) |  |  |
 | morphen | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
 | 已经无敌了 | [76561198173106266](https://steamcommunity.com/profiles/76561198173106266) |  |  |
