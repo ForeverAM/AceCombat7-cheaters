@@ -18,7 +18,7 @@
 | ★ | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Supermaneuverable&#32;A-10 |  |
 | KatLuci | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
 | aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
-| Dawid49 | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) |  |  |
+| Panavia Tornado7 | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) |  |  |
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
 | Cobra manoeuvre | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
