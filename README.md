@@ -9,7 +9,7 @@
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | ase037 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
-| taflaf | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
+| magipote | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
 | Black Mamba | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | Brundy13 | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
