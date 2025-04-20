@@ -7,7 +7,7 @@
 | hugada | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
-| ase037 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
+| Sky cruise | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | magipote | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
