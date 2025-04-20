@@ -5,6 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Click on my game name | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | hugada | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
+| NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | ase037 | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
@@ -24,7 +25,6 @@
 | aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
 | Panavia Tornado7 | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) | Dawid49 |  |
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
-| NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | Mej.Fikri Iskandar | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) |  |  |
 | 特雷森食堂第一突破手 | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
 | I am trash | [76561199207878242](https://steamcommunity.com/profiles/76561199207878242) |  |  |
