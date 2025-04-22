@@ -5,6 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Jail | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | hugada | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
+| loopzerker496 | [76561199154859343](https://steamcommunity.com/profiles/76561199154859343) | KRSW&#32;Lord |  |
 | leon07116 | [76561198016904903](https://steamcommunity.com/profiles/76561198016904903) |  |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
@@ -129,7 +130,6 @@
 | Aerospace8 | [76561198117229678](https://steamcommunity.com/profiles/76561198117229678) |  |  |
 | DJmax | [76561199581609988](https://steamcommunity.com/profiles/76561199581609988) |  |  |
 | Pingu | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | ND-HE |  |
-| loopzerker496 | [76561199154859343](https://steamcommunity.com/profiles/76561199154859343) | KRSW&#32;Lord |  |
 | 1095033923 | [76561198358276789](https://steamcommunity.com/profiles/76561198358276789) |  |  |
 | 532977060 | [76561198444660192](https://steamcommunity.com/profiles/76561198444660192) |  |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
