@@ -92,7 +92,7 @@
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
 | ๋ | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
-| CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
+|  | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
 | な | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
@@ -218,7 +218,7 @@
 | Deliver Us | [76561198043433411](https://steamcommunity.com/profiles/76561198043433411) |  |  |
 | JAIGAYRAY | [76561198030697690](https://steamcommunity.com/profiles/76561198030697690) |  |  |
 | 清风班春 | [76561198938976695](https://steamcommunity.com/profiles/76561198938976695) |  |  |
-| jackykh | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
+|  | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
 | 180 | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
 | 180.2 | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
 | .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
