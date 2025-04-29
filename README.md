@@ -17,7 +17,7 @@
 | magipote | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
 | Black Mamba | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
-| Brundy13 | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
+| PointBlank | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
 | Pan \| Guiding Star | [76561198354392863](https://steamcommunity.com/profiles/76561198354392863) |  | High&#32;maneuverability |
 | LaPanne Motors | [76561198368764423](https://steamcommunity.com/profiles/76561198368764423) |  |  |
 | Alpha | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla |  |
