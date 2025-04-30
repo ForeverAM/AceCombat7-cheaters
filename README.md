@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| Delsol | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad&#32;Using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| Delsol | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;Using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Beam | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | hugada | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Zetamin-Addicted Individual | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Supermaneuverable&#32;A-10 |  |
