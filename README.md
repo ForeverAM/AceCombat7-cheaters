@@ -6,6 +6,7 @@
 | Beam | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | hugada | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Zetamin-Addicted Individual | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Supermaneuverable&#32;A-10 |  |
+| しおさい | [76561199062328576](https://steamcommunity.com/profiles/76561199062328576) |  |  |
 | 阿雾绫 | [76561199317817093](https://steamcommunity.com/profiles/76561199317817093) |  |  |
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | gunzerker497 | [76561199154859343](https://steamcommunity.com/profiles/76561199154859343) | KRSW&#32;Lord |  |
