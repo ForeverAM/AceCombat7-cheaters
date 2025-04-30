@@ -5,14 +5,14 @@
 | ------ | ------ | ------ | ------ |
 | Delsol | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;Using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Beam | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
-|  | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
+| hugada | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Zetamin-Addicted Individual | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Supermaneuverable&#32;A-10 |  |
 | RDX_Neket | [76561199650989330](https://steamcommunity.com/profiles/76561199650989330) |  |  |
-|  | [76561199317817093](https://steamcommunity.com/profiles/76561199317817093) |  |  |
-|  | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
-|  | [76561199154859343](https://steamcommunity.com/profiles/76561199154859343) | KRSW&#32;Lord |  |
+| 阿雾绫 | [76561199317817093](https://steamcommunity.com/profiles/76561199317817093) |  |  |
+| is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
+| gunzerker497 | [76561199154859343](https://steamcommunity.com/profiles/76561199154859343) | KRSW&#32;Lord |  |
 | leon07116 | [76561198016904903](https://steamcommunity.com/profiles/76561198016904903) |  |  |
-|  | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
+| NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | オリベイラフ | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | Deep space | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
@@ -23,7 +23,7 @@
 | Pan \| Guiding Star | [76561198354392863](https://steamcommunity.com/profiles/76561198354392863) |  | High&#32;maneuverability |
 | LaPanne Motors | [76561198368764423](https://steamcommunity.com/profiles/76561198368764423) |  |  |
 | 已经无敌了 | [76561198173106266](https://steamcommunity.com/profiles/76561198173106266) |  |  |
-|  | [76561199220489238](https://steamcommunity.com/profiles/76561199220489238) |  |  |
+| 刻苦练狙的肯尼迪 | [76561199220489238](https://steamcommunity.com/profiles/76561199220489238) |  |  |
 | chan963 | [76561198098057946](https://steamcommunity.com/profiles/76561198098057946) |  |  |
 | KatLuci | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
 | aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
@@ -41,16 +41,16 @@
 | M. Félix | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
 | RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
-|  | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) |  |  |
+| Azrael | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) |  |  |
 | Dr.Kepler | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
 | Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
-|  | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
+| Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
 | Camus | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
 | f1shift | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
-|  | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
-|  | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
+| Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
+| 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
 | Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
 | GHOSTS OF RAZGRIZ | [76561198095972461](https://steamcommunity.com/profiles/76561198095972461) | GUYS,sally,go!&#32;-GIG! |  |
 | alanchan999 | [76561198068539704](https://steamcommunity.com/profiles/76561198068539704) |  |  |
