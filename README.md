@@ -4,7 +4,7 @@
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
 | lost soul | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| Krait | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
+| 07 | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | hugada | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Softvase | [76561199085560339](https://steamcommunity.com/profiles/76561199085560339) |  |  |
 | Zetamin-Addicted Individual | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Zetamin |  |
@@ -75,7 +75,7 @@
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
-| Witness_my_Perfection | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
+| Novaventus | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
 | Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) |  |  |
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
