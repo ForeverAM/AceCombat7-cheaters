@@ -243,7 +243,7 @@
 | Hydra9 | [76561198368034387](https://steamcommunity.com/profiles/76561198368034387) |  |  |
 | 葫芦娃 | [76561199116012716](https://steamcommunity.com/profiles/76561199116012716) |  |  |
 | spacewolves | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
-| Bad Influence | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
+|  | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
 | Running4Revenge | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
 | 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
