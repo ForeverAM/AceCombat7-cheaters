@@ -7,7 +7,7 @@
 | Johnny overclocked | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | likw6 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | ndikwey135398 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
-| Deep space | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
+| Space is boundless | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | Rin | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
 | Softvase | [76561199085560339](https://steamcommunity.com/profiles/76561199085560339) |  |  |
 | Zetamin-Addicted Individual | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Zetamin |  |
