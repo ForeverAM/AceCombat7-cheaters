@@ -6,7 +6,7 @@
 | Turk | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Johnny overclocked | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | likw6 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
-| ndikwey135398 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
+| REBELY | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) |  |  |
 | Space is boundless | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | Rin | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
 | Softvase | [76561199085560339](https://steamcommunity.com/profiles/76561199085560339) |  |  |
