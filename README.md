@@ -13,7 +13,7 @@
 | ladiesman217 | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) |  |  |
 | TR7Undertaker | [76561198355506841](https://steamcommunity.com/profiles/76561198355506841) |  |  |
 | 弥生木靈 | [76561199029058407](https://steamcommunity.com/profiles/76561199029058407) |  |  |
-| REBELY | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | ndikwey135398 |  |
+| Bid132386759 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | ndikwey135398 |  |
 | Space is boundless | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | Rin | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
 | Softvase | [76561199085560339](https://steamcommunity.com/profiles/76561199085560339) |  |  |
