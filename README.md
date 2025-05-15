@@ -4,7 +4,7 @@
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
 | Turk | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| 1284829307 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) |  | Very&#32;bad |
+| 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) |  | Very&#32;bad |
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | likw6 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
@@ -245,7 +245,7 @@
 | Alipapa | [76561199032447430](https://steamcommunity.com/profiles/76561199032447430) |  |  |
 | 网上比街上热闹 | [76561199028490431](https://steamcommunity.com/profiles/76561199028490431) |  |  |
 | GUOZI ! | [76561198445457868](https://steamcommunity.com/profiles/76561198445457868) |  |  |
-|  | [76561198368034387](https://steamcommunity.com/profiles/76561198368034387) |  |  |
+| Hydra9 | [76561198368034387](https://steamcommunity.com/profiles/76561198368034387) |  |  |
 | 葫芦娃 | [76561199116012716](https://steamcommunity.com/profiles/76561199116012716) |  |  |
 | spacewolves | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
 | Bad Influence | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
