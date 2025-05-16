@@ -5,7 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | Turk | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) | 1284829307 | Very&#32;bad |
-| Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
+| Johnny bossfight | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | likw6 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
 | Grashov_デムシ | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
@@ -120,7 +120,7 @@
 | Malkars | [76561199543154000](https://steamcommunity.com/profiles/76561199543154000) |  |  |
 | rafapt420 | [76561199549314093](https://steamcommunity.com/profiles/76561199549314093) |  |  |
 | elna82 | [76561198389918662](https://steamcommunity.com/profiles/76561198389918662) |  |  |
-| Tó de Mario | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
+| Whiska! | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
 | NH the Introvert | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
