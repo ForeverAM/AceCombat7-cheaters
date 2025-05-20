@@ -11,7 +11,7 @@
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
 | Grashov_デムシ | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
-| thuantruongzz254 | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) |  |  |
+| thuantruongzz254 | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
 | TR7Undertaker | [76561198355506841](https://steamcommunity.com/profiles/76561198355506841) |  |  |
 | 弥生木靈 | [76561199029058407](https://steamcommunity.com/profiles/76561199029058407) |  |  |
 | Hiyori | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
