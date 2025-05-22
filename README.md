@@ -8,6 +8,7 @@
 | Q | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | likw6 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | ChatGPT | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) |  |  |
+| nehz | [76561198390523516](https://steamcommunity.com/profiles/76561198390523516) |  |  |
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
 | Grashov_デムシ | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
