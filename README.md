@@ -5,7 +5,7 @@
 | ------ | ------ | ------ | ------ |
 | vinnie | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) | 1284829307 | Very&#32;bad |
-| CFA-44 bossfight | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
+| Q | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | likw6 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | ChatGPT | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) |  |  |
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
@@ -28,7 +28,7 @@
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | magipote | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
-| 블랙이글스_스트라이크 | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 | Once&#32;cheated |
+| Slient violent | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 | Once&#32;cheated |
 | PointBlank | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
 | Pan \| Guiding Star | [76561198354392863](https://steamcommunity.com/profiles/76561198354392863) |  | High&#32;maneuverability |
 | LaPanne Motors | [76561198368764423](https://steamcommunity.com/profiles/76561198368764423) |  |  |
