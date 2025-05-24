@@ -7,6 +7,7 @@
 | 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) | 1284829307 | Very&#32;bad |
 | Stay out of this Territory | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | 9^99 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
+| Capt. Farievilo | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | papipapi7772000 | [76561199093661538](https://steamcommunity.com/profiles/76561199093661538) |  |  |
 | Wawa | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
 | ChatGPT | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) |  |  |
@@ -27,7 +28,6 @@
 | 51 MUSTANG | [76561199154859343](https://steamcommunity.com/profiles/76561199154859343) | KRSW&#32;Lord |  |
 | leon07116 | [76561198016904903](https://steamcommunity.com/profiles/76561198016904903) |  |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
-| Capt. Farievilo | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | magipote | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
