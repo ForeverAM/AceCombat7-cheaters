@@ -29,7 +29,7 @@
 | leon07116 | [76561198016904903](https://steamcommunity.com/profiles/76561198016904903) |  |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
-| magipote | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
+| takeloy | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
 | Slient violent | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 | Once&#32;cheated |
 | PointBlank | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
