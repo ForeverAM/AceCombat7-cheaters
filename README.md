@@ -25,7 +25,6 @@
 | Zeta's Zetanium | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Zetamin |  |
 | RDX_Neket | [76561199650989330](https://steamcommunity.com/profiles/76561199650989330) |  |  |
 | 阿雾绫 | [76561199317817093](https://steamcommunity.com/profiles/76561199317817093) |  |  |
-| 51 MUSTANG | [76561199154859343](https://steamcommunity.com/profiles/76561199154859343) | KRSW&#32;Lord |  |
 | leon07116 | [76561198016904903](https://steamcommunity.com/profiles/76561198016904903) |  |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
