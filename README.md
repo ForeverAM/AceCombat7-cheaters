@@ -32,7 +32,6 @@
 | Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
 | Slient violent | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 | Once&#32;cheated |
 | PointBlank | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
-| Pan \| Guiding Star | [76561198354392863](https://steamcommunity.com/profiles/76561198354392863) |  | High&#32;maneuverability |
 | LaPanne Motors | [76561198368764423](https://steamcommunity.com/profiles/76561198368764423) |  |  |
 | 已经无敌了 | [76561198173106266](https://steamcommunity.com/profiles/76561198173106266) |  |  |
 | 刻苦练狙的肯尼迪 | [76561199220489238](https://steamcommunity.com/profiles/76561199220489238) |  |  |
