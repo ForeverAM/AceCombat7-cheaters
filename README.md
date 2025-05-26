@@ -7,7 +7,7 @@
 | 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) | 1284829307 | Very&#32;bad |
 | Fexumflex | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | 9^99 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
-| Capt. Farievilo | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+| 法裡維洛上尉 | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | papipapi7772000 | [76561199093661538](https://steamcommunity.com/profiles/76561199093661538) |  |  |
 | Wawa | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
 | ChatGPT | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) |  |  |
