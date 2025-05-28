@@ -11,7 +11,7 @@
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
 | Nico | [76561198354361132](https://steamcommunity.com/profiles/76561198354361132) |  |  |
-| 法裡維洛上尉 | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
+| Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | papipapi7772000 | [76561199093661538](https://steamcommunity.com/profiles/76561199093661538) |  |  |
 | Wawa | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
 | ChatGPT | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) |  |  |
