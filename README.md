@@ -96,7 +96,7 @@
 | Playboy·S | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
 | 东栩 | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
 | The Harbinger of Death | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
-| 76561198798948279 | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
+| wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
 | 未来の社畜 | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | やふゆる_Vtuber |  |
@@ -144,7 +144,7 @@
 | Arepa | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | ND-HE |  |
 | 1095033923 | [76561198358276789](https://steamcommunity.com/profiles/76561198358276789) |  |  |
 | 532977060 | [76561198444660192](https://steamcommunity.com/profiles/76561198444660192) |  |  |
-|  | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
+| KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
 | 陈CXHK | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
 | madsenskyler39 | [76561199530166685](https://steamcommunity.com/profiles/76561199530166685) |  |  |
 | Torero | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
