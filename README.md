@@ -8,6 +8,7 @@
 | WE flex | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | likmloela9^wa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| lys0127 | [76561198811677068](https://steamcommunity.com/profiles/76561198811677068) |  |  |
 | ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 | arino | [76561199482650750](https://steamcommunity.com/profiles/76561199482650750) |  |  |
 | x | [76561198860320969](https://steamcommunity.com/profiles/76561198860320969) |  |  |
