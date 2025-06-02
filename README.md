@@ -194,7 +194,7 @@
 | Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
 | 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
 | Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
-|  | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
+| spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
 | Ronin Eternal | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  |  |
 | 夕阳武士与狗， | [76561198294378412](https://steamcommunity.com/profiles/76561198294378412) |  |  |
