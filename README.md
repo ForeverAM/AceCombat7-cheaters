@@ -9,7 +9,6 @@
 | likmloela9^wa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | profile name my ass | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
-| Ghiom Xie | [76561199085710226](https://steamcommunity.com/profiles/76561199085710226) |  | He&#32;promised&#32;not&#32;to&#32;cheat&#32;again |
 | miao | [76561199087688398](https://steamcommunity.com/profiles/76561199087688398) |  |  |
 | lys0127 | [76561198811677068](https://steamcommunity.com/profiles/76561198811677068) |  |  |
 | ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
