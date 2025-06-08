@@ -10,6 +10,7 @@
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | Profile Name | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
 | PointBlank | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) |  |  |
+| Nico | [76561198354361132](https://steamcommunity.com/profiles/76561198354361132) |  |  |
 | testpilot.ace7 | [76561199859940469](https://steamcommunity.com/profiles/76561199859940469) |  |  |
 | Officer Balls | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
 | miao | [76561199087688398](https://steamcommunity.com/profiles/76561199087688398) |  |  |
@@ -19,7 +20,6 @@
 | x | [76561198860320969](https://steamcommunity.com/profiles/76561198860320969) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
-| Nico | [76561198354361132](https://steamcommunity.com/profiles/76561198354361132) |  |  |
 | Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | papipapi7772000 | [76561199093661538](https://steamcommunity.com/profiles/76561199093661538) |  |  |
 | Wawa | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
