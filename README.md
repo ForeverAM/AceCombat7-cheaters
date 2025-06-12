@@ -32,7 +32,7 @@
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | TR7Undertaker | [76561198355506841](https://steamcommunity.com/profiles/76561198355506841) |  |  |
 | 弥生木靈 | [76561199029058407](https://steamcommunity.com/profiles/76561199029058407) |  |  |
-| ytaas163554 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
+| Rebely JP | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Flight | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | Rin | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
 | Softvase | [76561199085560339](https://steamcommunity.com/profiles/76561199085560339) |  |  |
