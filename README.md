@@ -6,7 +6,7 @@
 | Xeno | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
-| Amidst the clouds | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
+| Harsh and brutal warfare | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | Kr0nos7698 | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
 | Evrito | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
