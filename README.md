@@ -6,6 +6,7 @@
 | Johnny | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| Rebely. JP | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | awayancedricedward | [76561199809956509](https://steamcommunity.com/profiles/76561199809956509) |  |  |
 | Harsh and brutal warfare | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
@@ -40,7 +41,6 @@
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | TR7Undertaker | [76561198355506841](https://steamcommunity.com/profiles/76561198355506841) |  |  |
 | 弥生木靈 | [76561199029058407](https://steamcommunity.com/profiles/76561199029058407) |  |  |
-| Rebely. JP | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Gouge | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Rin | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
 | Softvase | [76561199085560339](https://steamcommunity.com/profiles/76561199085560339) |  |  |
