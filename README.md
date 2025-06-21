@@ -3,12 +3,12 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| Johnny Side | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
+| Johnny Good side | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | Rebely. JP | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | awayancedricedward | [76561199809956509](https://steamcommunity.com/profiles/76561199809956509) |  |  |
-| Harsh and brutal warfare | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
+| Butterfly effect | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | Kr0nos7698 | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
 | Evrito | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
@@ -164,7 +164,7 @@
 | Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
 | Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
 | Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
-| Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
+|  | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
 | IonizedAtom | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
 | Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
 | ZY06 | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
