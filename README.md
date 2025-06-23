@@ -6,6 +6,7 @@
 | Xterrestial J | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| ayanbaraighost141 | [76561199241517841](https://steamcommunity.com/profiles/76561199241517841) |  |  |
 | Rebely. JP | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | awayancedricedward | [76561199809956509](https://steamcommunity.com/profiles/76561199809956509) |  |  |
 | Butterfly effect | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
