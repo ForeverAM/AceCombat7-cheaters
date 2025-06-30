@@ -190,7 +190,7 @@
 |  | [76561198220391076](https://steamcommunity.com/profiles/76561198220391076) |  |  |
 |  | [76561198943227563](https://steamcommunity.com/profiles/76561198943227563) |  |  |
 |  | [76561199489780880](https://steamcommunity.com/profiles/76561199489780880) | Mike&#32;Hunt | Very&#32;bad |
-|  | [76561199247196637](https://steamcommunity.com/profiles/76561199247196637) | 奥西亚无人机 |  |
+| CHINESE DRONE | [76561199247196637](https://steamcommunity.com/profiles/76561199247196637) | 奥西亚无人机 |  |
 |  | [76561198107387037](https://steamcommunity.com/profiles/76561198107387037) |  |  |
 |  | [76561198955687025](https://steamcommunity.com/profiles/76561198955687025) |  |  |
 |  | [76561198145619796](https://steamcommunity.com/profiles/76561198145619796) |  |  |
