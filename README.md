@@ -118,7 +118,7 @@
 |  | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | やふゆる_Vtuber |  |
 |  | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
 |  | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
-| KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
+|  | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
 |  | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 |  | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
 |  | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
@@ -232,8 +232,8 @@
 |  | [76561198127073615](https://steamcommunity.com/profiles/76561198127073615) |  |  |
 |  | [76561198854660782](https://steamcommunity.com/profiles/76561198854660782) |  |  |
 |  | [76561199378969003](https://steamcommunity.com/profiles/76561199378969003) |  |  |
-|  | [76561198012246719](https://steamcommunity.com/profiles/76561198012246719) |  |  |
-|  | [76561199438934867](https://steamcommunity.com/profiles/76561199438934867) |  |  |
+| Domehead | [76561198012246719](https://steamcommunity.com/profiles/76561198012246719) |  |  |
+| 錦仙 . 優曇華院 `个力川 | [76561199438934867](https://steamcommunity.com/profiles/76561199438934867) |  |  |
 | 726683716 | [76561198281111612](https://steamcommunity.com/profiles/76561198281111612) |  |  |
 | Wang_JJ | [76561198223744704](https://steamcommunity.com/profiles/76561198223744704) | 軒尼詩_WJ |  |
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
@@ -262,8 +262,8 @@
 | ATHOOD | [76561198101337488](https://steamcommunity.com/profiles/76561198101337488) |  |  |
 | 一个不正经的老头 | [76561198851216499](https://steamcommunity.com/profiles/76561198851216499) |  |  |
 | &lt;font color=rpg#FF3030&gt;Vigoss | [76561198078057512](https://steamcommunity.com/profiles/76561198078057512) |  |  |
-| 武破千軍 | [76561198076137075](https://steamcommunity.com/profiles/76561198076137075) |  |  |
-| Alipapa | [76561199032447430](https://steamcommunity.com/profiles/76561199032447430) |  |  |
+|  | [76561198076137075](https://steamcommunity.com/profiles/76561198076137075) |  |  |
+|  | [76561199032447430](https://steamcommunity.com/profiles/76561199032447430) |  |  |
 |  | [76561199028490431](https://steamcommunity.com/profiles/76561199028490431) |  |  |
 |  | [76561198445457868](https://steamcommunity.com/profiles/76561198445457868) |  |  |
 |  | [76561198368034387](https://steamcommunity.com/profiles/76561198368034387) |  |  |
