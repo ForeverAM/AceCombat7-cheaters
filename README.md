@@ -6,6 +6,8 @@
 | Frag cannons | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| 刄 | [76561198825033902](https://steamcommunity.com/profiles/76561198825033902) |  |  |
+| koban3_jp | [76561199073231961](https://steamcommunity.com/profiles/76561199073231961) |  |  |
 | 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  |  |
 | nibba | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
@@ -31,8 +33,8 @@
 | ?? | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) | PointBlank |  |
 | Nico | [76561198354361132](https://steamcommunity.com/profiles/76561198354361132) |  |  |
 | 君がッ MODを外すまで殴るのをやめないッ！ | [76561199859940469](https://steamcommunity.com/profiles/76561199859940469) | testpilot.ace7 |  |
-| miao | [76561199087688398](https://steamcommunity.com/profiles/76561199087688398) |  |  |
-| lys0127 | [76561198811677068](https://steamcommunity.com/profiles/76561198811677068) |  |  |
+|  | [76561199087688398](https://steamcommunity.com/profiles/76561199087688398) |  |  |
+|  | [76561198811677068](https://steamcommunity.com/profiles/76561198811677068) |  |  |
 |  | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 |  | [76561199482650750](https://steamcommunity.com/profiles/76561199482650750) |  |  |
 |  | [76561198860320969](https://steamcommunity.com/profiles/76561198860320969) |  |  |
