@@ -6,7 +6,7 @@
 | Frag cannons | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
-| 翎 | [76561198825033902](https://steamcommunity.com/profiles/76561198825033902) |  |  |
+| 燄 | [76561198825033902](https://steamcommunity.com/profiles/76561198825033902) |  |  |
 | koban3_jp | [76561199073231961](https://steamcommunity.com/profiles/76561199073231961) |  |  |
 | 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  |  |
@@ -272,6 +272,6 @@
 |  | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
 |  | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
 |  | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
-| Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
-| Player Tag Pending... | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
-| GT-Force | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
+|  | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
+|  | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
+|  | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
