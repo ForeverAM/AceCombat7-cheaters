@@ -248,15 +248,15 @@
 |  | [76561198938976695](https://steamcommunity.com/profiles/76561198938976695) |  |  |
 |  | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
 |  | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
-| 180.2 | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
-| .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
-| Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
-| [ACE] RAPTOR | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
-| SuraSnlax | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
-| 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
-| FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
-| 老七 | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
-| you kick me cuz ure bad | [76561199086244180](https://steamcommunity.com/profiles/76561199086244180) |  |  |
+|  | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
+|  | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
+|  | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
+|  | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
+|  | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
+|  | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
+|  | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
+|  | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
+|  | [76561199086244180](https://steamcommunity.com/profiles/76561199086244180) |  |  |
 | Radder | [76561198084874424](https://steamcommunity.com/profiles/76561198084874424) |  |  |
 | WisdomTong | [76561198407886594](https://steamcommunity.com/profiles/76561198407886594) |  |  |
 | ATHOOD | [76561198101337488](https://steamcommunity.com/profiles/76561198101337488) |  |  |
