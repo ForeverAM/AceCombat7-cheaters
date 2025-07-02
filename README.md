@@ -244,8 +244,8 @@
 |  | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
 |  | [76561198092502120](https://steamcommunity.com/profiles/76561198092502120) |  |  |
 |  | [76561198043433411](https://steamcommunity.com/profiles/76561198043433411) |  |  |
-|  | [76561198030697690](https://steamcommunity.com/profiles/76561198030697690) |  |  |
-|  | [76561198938976695](https://steamcommunity.com/profiles/76561198938976695) |  |  |
+| JAIGAYRAY | [76561198030697690](https://steamcommunity.com/profiles/76561198030697690) |  |  |
+| 清风班春 | [76561198938976695](https://steamcommunity.com/profiles/76561198938976695) |  |  |
 | jackykh | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
 | 180 | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
 | 180.2 | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
@@ -274,4 +274,4 @@
 | 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
 | Player Tag Pending... | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
-| GT-Force | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
+|  | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
