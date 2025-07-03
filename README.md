@@ -82,7 +82,7 @@
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
 | Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
 | Camus | [76561199055046757](https://steamcommunity.com/profiles/76561199055046757) |  |  |
-|  | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
+| f1shift | [76561198883657609](https://steamcommunity.com/profiles/76561198883657609) |  |  |
 | Grana[ITA] | [76561198085046695](https://steamcommunity.com/profiles/76561198085046695) |  |  |
 | 525240020 | [76561198400155224](https://steamcommunity.com/profiles/76561198400155224) |  |  |
 | Mifune | [76561198814705964](https://steamcommunity.com/profiles/76561198814705964) |  |  |
@@ -116,7 +116,7 @@
 | LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
 | 未来の社畜 | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | やふゆる_Vtuber |  |
-| Yellow 13 | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
+|  | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
 | HASAUEI | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
 | ๋ | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
@@ -172,9 +172,9 @@
 | Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
 | Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
 | Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
-|  | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
-|  | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
-|  | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
+| Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
+| IonizedAtom | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
+| Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
 | ZY06 | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
 | minakosenpai | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
 | Teniente Muffin | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
