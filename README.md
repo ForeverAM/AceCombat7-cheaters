@@ -8,9 +8,9 @@
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | 燄 | [76561198825033902](https://steamcommunity.com/profiles/76561198825033902) | 刄 |  |
 | koban3_jp | [76561199073231961](https://steamcommunity.com/profiles/76561199073231961) |  |  |
-| 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
-| sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  |  |
-| nibba | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
+|  | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
+|  | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  |  |
+|  | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
 | 逍遥小仙翁 | [76561199224123229](https://steamcommunity.com/profiles/76561199224123229) |  |  |
 | Officer Balls | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
 | ayanbaraighost141 | [76561199241517841](https://steamcommunity.com/profiles/76561199241517841) |  |  |
