@@ -273,5 +273,5 @@
 | Running4Revenge | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
 | 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
-|  | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
+| Player Tag Pending... | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
 | GT-Force | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
