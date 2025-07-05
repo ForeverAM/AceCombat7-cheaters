@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| Frag cannons | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
+| Pencil the F-104 | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
@@ -32,7 +32,7 @@
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | Profile Name | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
 | ?? | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) | PointBlank |  |
-| Nico | [76561198354361132](https://steamcommunity.com/profiles/76561198354361132) |  |  |
+| Nico \| Crimson 1 | [76561198354361132](https://steamcommunity.com/profiles/76561198354361132) |  |  |
 | 君がッ MODを外すまで殴るのをやめないッ！ | [76561199859940469](https://steamcommunity.com/profiles/76561199859940469) | testpilot.ace7 |  |
 | miao | [76561199087688398](https://steamcommunity.com/profiles/76561199087688398) |  |  |
 | lys0127 | [76561198811677068](https://steamcommunity.com/profiles/76561198811677068) |  |  |
