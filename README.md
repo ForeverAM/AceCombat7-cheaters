@@ -47,8 +47,8 @@
 | Rafa | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
 | nehz | [76561198390523516](https://steamcommunity.com/profiles/76561198390523516) |  |  |
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
-| Grashov_デムシ | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
-| is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
+|  | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
+|  | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | TR7Undertaker | [76561198355506841](https://steamcommunity.com/profiles/76561198355506841) |  |  |
 | 弥生木靈 | [76561199029058407](https://steamcommunity.com/profiles/76561199029058407) |  |  |
 | monza | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
