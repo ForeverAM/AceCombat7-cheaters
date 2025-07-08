@@ -75,7 +75,7 @@
 | ryoichi.sakata | [76561198992622959](https://steamcommunity.com/profiles/76561198992622959) |  |  |
 | Dreamcatcher | [76561199233210122](https://steamcommunity.com/profiles/76561199233210122) |  |  |
 | VF | [76561198026812263](https://steamcommunity.com/profiles/76561198026812263) |  |  |
-|  | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
+| M. Félix | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
 | RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
 | Azrael | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) |  |  |
@@ -107,7 +107,7 @@
 | [BLHD]No.17_Lucifer | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
 | Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) |  |  |
-| Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
+| arbys beef and cheddar | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
 | zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
 | NekoHacker | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
 | Playboy·S | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
