@@ -261,7 +261,7 @@
 | WisdomTong | [76561198407886594](https://steamcommunity.com/profiles/76561198407886594) |  |  |
 | ATHOOD | [76561198101337488](https://steamcommunity.com/profiles/76561198101337488) |  |  |
 | 一个不正经的老头 | [76561198851216499](https://steamcommunity.com/profiles/76561198851216499) |  |  |
-|  | [76561198078057512](https://steamcommunity.com/profiles/76561198078057512) |  |  |
+| &lt;font color=rpg#FF3030&gt;Vigoss | [76561198078057512](https://steamcommunity.com/profiles/76561198078057512) |  |  |
 | 武破千軍 | [76561198076137075](https://steamcommunity.com/profiles/76561198076137075) |  |  |
 | Alipapa | [76561199032447430](https://steamcommunity.com/profiles/76561199032447430) |  |  |
 | 网上比街上热闹 | [76561199028490431](https://steamcommunity.com/profiles/76561199028490431) |  |  |
