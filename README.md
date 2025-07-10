@@ -226,12 +226,12 @@
 | GuiltySpark | [76561199507205763](https://steamcommunity.com/profiles/76561199507205763) |  |  |
 | Typhoon | [76561199363114608](https://steamcommunity.com/profiles/76561199363114608) |  |  |
 | La Gordah Muñones | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
-| alpha | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
+|  | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
 | Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
 | Magnaef | [76561199433034628](https://steamcommunity.com/profiles/76561199433034628) |  |  |
 | Nota | [76561198036859894](https://steamcommunity.com/profiles/76561198036859894) |  |  |
 | PrayerAnswer | [76561199216430196](https://steamcommunity.com/profiles/76561199216430196) |  |  |
-| DagZede | [76561198127073615](https://steamcommunity.com/profiles/76561198127073615) |  |  |
+|  | [76561198127073615](https://steamcommunity.com/profiles/76561198127073615) |  |  |
 | seanpowellonemanband | [76561198854660782](https://steamcommunity.com/profiles/76561198854660782) |  |  |
 | toonistiny | [76561199378969003](https://steamcommunity.com/profiles/76561199378969003) |  |  |
 | Domehead | [76561198012246719](https://steamcommunity.com/profiles/76561198012246719) |  |  |
@@ -243,7 +243,7 @@
 | CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
 | JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
 | Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Very&#32;bad |
-| Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
+|  | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
 | iRatman_ | [76561198092502120](https://steamcommunity.com/profiles/76561198092502120) |  |  |
 | Deliver Us | [76561198043433411](https://steamcommunity.com/profiles/76561198043433411) |  |  |
 | JAIGAYRAY | [76561198030697690](https://steamcommunity.com/profiles/76561198030697690) |  |  |
@@ -260,9 +260,9 @@
 | 老七 | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
 | you kick me cuz ure bad | [76561199086244180](https://steamcommunity.com/profiles/76561199086244180) |  |  |
 | Radder | [76561198084874424](https://steamcommunity.com/profiles/76561198084874424) |  |  |
-| WisdomTong | [76561198407886594](https://steamcommunity.com/profiles/76561198407886594) |  |  |
-| ATHOOD | [76561198101337488](https://steamcommunity.com/profiles/76561198101337488) |  |  |
-| 一个不正经的老头 | [76561198851216499](https://steamcommunity.com/profiles/76561198851216499) |  |  |
+|  | [76561198407886594](https://steamcommunity.com/profiles/76561198407886594) |  |  |
+|  | [76561198101337488](https://steamcommunity.com/profiles/76561198101337488) |  |  |
+|  | [76561198851216499](https://steamcommunity.com/profiles/76561198851216499) |  |  |
 | &lt;font color=rpg#FF3030&gt;Vigoss | [76561198078057512](https://steamcommunity.com/profiles/76561198078057512) |  |  |
 | 武破千軍 | [76561198076137075](https://steamcommunity.com/profiles/76561198076137075) |  |  |
 | Alipapa | [76561199032447430](https://steamcommunity.com/profiles/76561199032447430) |  |  |
