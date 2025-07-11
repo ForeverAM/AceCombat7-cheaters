@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| Johnny \| It's just a game, true. | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
+| stop taking the game seriously | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
@@ -50,7 +50,7 @@
 | Rafa | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
 | nehz | [76561198390523516](https://steamcommunity.com/profiles/76561198390523516) |  |  |
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
-| Unnamed | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
+| Grashov_デムシ | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | TR7Undertaker | [76561198355506841](https://steamcommunity.com/profiles/76561198355506841) |  |  |
 | 弥生木靈 | [76561199029058407](https://steamcommunity.com/profiles/76561199029058407) |  |  |
