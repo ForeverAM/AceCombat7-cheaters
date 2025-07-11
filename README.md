@@ -6,6 +6,7 @@
 | Johnny \| It's just a game, true. | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
 | mahdimofid213 | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
 | Idz17 | [76561199708481489](https://steamcommunity.com/profiles/76561199708481489) |  |  |
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
@@ -209,7 +210,6 @@
 | Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
 | Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
 | 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
-| Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
 | spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
 | Ronin Eternal | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  |  |
