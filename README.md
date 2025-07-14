@@ -127,7 +127,7 @@
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
-|  | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
+| Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
 | な | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
 | OOXX | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
@@ -236,7 +236,7 @@
 | seanpowellonemanband | [76561198854660782](https://steamcommunity.com/profiles/76561198854660782) |  |  |
 | toonistiny | [76561199378969003](https://steamcommunity.com/profiles/76561199378969003) |  |  |
 | Domehead | [76561198012246719](https://steamcommunity.com/profiles/76561198012246719) |  |  |
-| 錦仙 . 優曇華院 `个力川 | [76561199438934867](https://steamcommunity.com/profiles/76561199438934867) |  |  |
+|  | [76561199438934867](https://steamcommunity.com/profiles/76561199438934867) |  |  |
 | 726683716 | [76561198281111612](https://steamcommunity.com/profiles/76561198281111612) |  |  |
 | Wang_JJ | [76561198223744704](https://steamcommunity.com/profiles/76561198223744704) | 軒尼詩_WJ |  |
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
