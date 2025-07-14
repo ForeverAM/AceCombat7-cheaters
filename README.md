@@ -22,7 +22,7 @@
 | YoiYoiDzuhki | [76561198531827523](https://steamcommunity.com/profiles/76561198531827523) |  |  |
 | Rebely. JP | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Unknown_1500 | [76561199809956509](https://steamcommunity.com/profiles/76561199809956509) | awayancedricedward |  |
-| Soar through the skies | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
+| kx | [76561199232107732](https://steamcommunity.com/profiles/76561199232107732) | skywY |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | k4d | [76561198453452152](https://steamcommunity.com/profiles/76561198453452152) |  |  |
 | Kr0nos7698 | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
