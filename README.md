@@ -97,7 +97,7 @@
 | URUGUAYO1985 | [76561199145458014](https://steamcommunity.com/profiles/76561199145458014) |  |  |
 | POLA97X | [76561198356113029](https://steamcommunity.com/profiles/76561198356113029) |  |  |
 | 终结族族长 | [76561199505002057](https://steamcommunity.com/profiles/76561199505002057) | 情报员老秦 |  |
-| cdot2rap | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
+|  | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
 | Bread | [76561199096257101](https://steamcommunity.com/profiles/76561199096257101) |  |  |
 | *****isarubbish54188 | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
 | quijada_2212 | [76561199194351688](https://steamcommunity.com/profiles/76561199194351688) |  |  |
@@ -262,15 +262,15 @@
 | you kick me cuz ure bad | [76561199086244180](https://steamcommunity.com/profiles/76561199086244180) |  |  |
 | Radder | [76561198084874424](https://steamcommunity.com/profiles/76561198084874424) |  |  |
 | WisdomTong | [76561198407886594](https://steamcommunity.com/profiles/76561198407886594) |  |  |
-| ATHOOD | [76561198101337488](https://steamcommunity.com/profiles/76561198101337488) |  |  |
-| 一个不正经的老头 | [76561198851216499](https://steamcommunity.com/profiles/76561198851216499) |  |  |
-| &lt;font color=rpg#FF3030&gt;Vigoss | [76561198078057512](https://steamcommunity.com/profiles/76561198078057512) |  |  |
+|  | [76561198101337488](https://steamcommunity.com/profiles/76561198101337488) |  |  |
+|  | [76561198851216499](https://steamcommunity.com/profiles/76561198851216499) |  |  |
+|  | [76561198078057512](https://steamcommunity.com/profiles/76561198078057512) |  |  |
 | 武破千軍 | [76561198076137075](https://steamcommunity.com/profiles/76561198076137075) |  |  |
 | Alipapa | [76561199032447430](https://steamcommunity.com/profiles/76561199032447430) |  |  |
 | 网上比街上热闹 | [76561199028490431](https://steamcommunity.com/profiles/76561199028490431) |  |  |
 | GUOZI ! | [76561198445457868](https://steamcommunity.com/profiles/76561198445457868) |  |  |
 | Hydra9 | [76561198368034387](https://steamcommunity.com/profiles/76561198368034387) |  |  |
-| 葫芦娃 | [76561199116012716](https://steamcommunity.com/profiles/76561199116012716) |  |  |
+|  | [76561199116012716](https://steamcommunity.com/profiles/76561199116012716) |  |  |
 | spacewolves | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
 | Bad Influence | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
 | Running4Revenge | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
