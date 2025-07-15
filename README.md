@@ -114,8 +114,8 @@
 | Ryder Knotdeep | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
 | zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
 | NekoHacker | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
-| Playboy·S | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
-| 东栩 | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
+|  | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
+|  | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
 | The Harbinger of Death | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
 | LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
