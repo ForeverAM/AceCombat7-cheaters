@@ -209,8 +209,8 @@
 | Scorpion King | [76561198038827316](https://steamcommunity.com/profiles/76561198038827316) |  |  |
 | 临琛 | [76561199474926894](https://steamcommunity.com/profiles/76561199474926894) | 风卷尘生 |  |
 | อิสระ VZOR | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
-| doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
-| ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
+|  | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
+|  | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
 | Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
 | Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
 | 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
