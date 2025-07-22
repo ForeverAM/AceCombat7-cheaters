@@ -18,7 +18,7 @@
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
 | 燄 | [76561198825033902](https://steamcommunity.com/profiles/76561198825033902) | 刄 |  |
 | koban3_jp | [76561199073231961](https://steamcommunity.com/profiles/76561199073231961) |  |  |
-| 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
+|  | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  |  |
 | nibba | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
 | 逍遥小仙翁 | [76561199224123229](https://steamcommunity.com/profiles/76561199224123229) |  |  |
@@ -79,9 +79,9 @@
 | 特雷森食堂第一突破手 | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
 | I am trash | [76561199207878242](https://steamcommunity.com/profiles/76561199207878242) |  |  |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
-| ryoichi.sakata | [76561198992622959](https://steamcommunity.com/profiles/76561198992622959) |  |  |
-| Dreamcatcher | [76561199233210122](https://steamcommunity.com/profiles/76561199233210122) |  |  |
-| VF | [76561198026812263](https://steamcommunity.com/profiles/76561198026812263) |  |  |
+|  | [76561198992622959](https://steamcommunity.com/profiles/76561198992622959) |  |  |
+|  | [76561199233210122](https://steamcommunity.com/profiles/76561199233210122) |  |  |
+|  | [76561198026812263](https://steamcommunity.com/profiles/76561198026812263) |  |  |
 | M. Félix | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
 | RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
@@ -209,8 +209,8 @@
 | Scorpion King | [76561198038827316](https://steamcommunity.com/profiles/76561198038827316) |  |  |
 | 临琛 | [76561199474926894](https://steamcommunity.com/profiles/76561199474926894) | 风卷尘生 |  |
 | อิสระ VZOR | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
-|  | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
-|  | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
+| doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
+| ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
 | Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
 | Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
 | 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
