@@ -45,9 +45,9 @@
 | miao | [76561199087688398](https://steamcommunity.com/profiles/76561199087688398) |  |  |
 | lys0127 | [76561198811677068](https://steamcommunity.com/profiles/76561198811677068) |  |  |
 | ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
-| arino | [76561199482650750](https://steamcommunity.com/profiles/76561199482650750) |  |  |
-| xxxxxxa | [76561198860320969](https://steamcommunity.com/profiles/76561198860320969) |  |  |
-| Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
+|  | [76561199482650750](https://steamcommunity.com/profiles/76561199482650750) |  |  |
+|  | [76561198860320969](https://steamcommunity.com/profiles/76561198860320969) |  |  |
+|  | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) | 1284829307 | Very&#32;bad |
 | papipapi7772000 | [76561199093661538](https://steamcommunity.com/profiles/76561199093661538) |  |  |
