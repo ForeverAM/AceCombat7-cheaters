@@ -33,9 +33,9 @@
 | Kr0nos7698 | [76561199557221173](https://steamcommunity.com/profiles/76561199557221173) |  |  |
 | Evrito | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
 | Huntress 1 | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
-| NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
-| TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
-| golden50 | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
+|  | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
+|  | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
+|  | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | 雷影战魂,风暴猎手 | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | 破天荒 | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
