@@ -44,7 +44,7 @@
 | Nico | [76561198354361132](https://steamcommunity.com/profiles/76561198354361132) |  |  |
 | 君がッ MODを外すまで殴るのをやめないッ！ | [76561199859940469](https://steamcommunity.com/profiles/76561199859940469) | testpilot.ace7 |  |
 | miao | [76561199087688398](https://steamcommunity.com/profiles/76561199087688398) |  |  |
-|  | [76561198811677068](https://steamcommunity.com/profiles/76561198811677068) |  |  |
+| lys0127 | [76561198811677068](https://steamcommunity.com/profiles/76561198811677068) |  |  |
 | ALEX | [76561199574604095](https://steamcommunity.com/profiles/76561199574604095) |  |  |
 | arino | [76561199482650750](https://steamcommunity.com/profiles/76561199482650750) |  |  |
 | xxxxxxa | [76561198860320969](https://steamcommunity.com/profiles/76561198860320969) |  |  |
@@ -112,7 +112,7 @@
 | zakaclase | [76561198240455784](https://steamcommunity.com/profiles/76561198240455784) |  |  |
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
-| Massive Impact | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
+| Halal Kebab | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
 | Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) |  |  |
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
@@ -175,7 +175,7 @@
 | 󠀡󠀡 | [76561199135446407](https://steamcommunity.com/profiles/76561199135446407) |  |  |
 | Moretti | [76561199117280140](https://steamcommunity.com/profiles/76561199117280140) |  |  |
 | 老司鸡 | [76561198443132230](https://steamcommunity.com/profiles/76561198443132230) |  |  |
-|  | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
+| Overlord | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
 | RED-DAX-XIII | [76561198345323408](https://steamcommunity.com/profiles/76561198345323408) |  |  |
 | Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
 | Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
