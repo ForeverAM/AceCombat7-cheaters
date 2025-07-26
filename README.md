@@ -169,7 +169,7 @@
 | 1095033923 | [76561198358276789](https://steamcommunity.com/profiles/76561198358276789) |  |  |
 | 532977060 | [76561198444660192](https://steamcommunity.com/profiles/76561198444660192) |  |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
-| 陈CXHK | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
+|  | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
 | madsenskyler39 | [76561199530166685](https://steamcommunity.com/profiles/76561199530166685) |  |  |
 | Torero | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
 | 󠀡󠀡 | [76561199135446407](https://steamcommunity.com/profiles/76561199135446407) |  |  |
