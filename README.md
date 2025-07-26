@@ -127,7 +127,7 @@
 | Yellow 13 | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
 | HASAUEI | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
-|  | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
+| ๋ | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
 | あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
@@ -171,9 +171,9 @@
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
 | 陈CXHK | [76561199027978364](https://steamcommunity.com/profiles/76561199027978364) |  |  |
 | madsenskyler39 | [76561199530166685](https://steamcommunity.com/profiles/76561199530166685) |  |  |
-|  | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
-|  | [76561199135446407](https://steamcommunity.com/profiles/76561199135446407) |  |  |
-|  | [76561199117280140](https://steamcommunity.com/profiles/76561199117280140) |  |  |
+| Torero | [76561199216725193](https://steamcommunity.com/profiles/76561199216725193) | Skyfire |  |
+| 󠀡󠀡 | [76561199135446407](https://steamcommunity.com/profiles/76561199135446407) |  |  |
+| Moretti | [76561199117280140](https://steamcommunity.com/profiles/76561199117280140) |  |  |
 | 老司鸡 | [76561198443132230](https://steamcommunity.com/profiles/76561198443132230) |  |  |
 | Overlord | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
 | RED-DAX-XIII | [76561198345323408](https://steamcommunity.com/profiles/76561198345323408) |  |  |
