@@ -16,7 +16,7 @@
 | INoyanæ | [76561199401823112](https://steamcommunity.com/profiles/76561199401823112) |  |  |
 | Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
 | mahdimofid213 | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
-| BurgerKing | [76561199708481489](https://steamcommunity.com/profiles/76561199708481489) | Idz17 |  |
+| etzer | [76561199708481489](https://steamcommunity.com/profiles/76561199708481489) | Idz17 |  |
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
 | 燄 | [76561198825033902](https://steamcommunity.com/profiles/76561198825033902) | 刄 |  |
 | koban3_jp | [76561199073231961](https://steamcommunity.com/profiles/76561199073231961) |  |  |
