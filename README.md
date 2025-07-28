@@ -191,7 +191,7 @@
 | rudukwc13 | [76561199223936931](https://steamcommunity.com/profiles/76561199223936931) |  |  |
 | 20S | [76561198930833258](https://steamcommunity.com/profiles/76561198930833258) |  |  |
 | kimono | [76561199373637935](https://steamcommunity.com/profiles/76561199373637935) |  |  |
-| 蜡笔小蟹 | [76561199002216348](https://steamcommunity.com/profiles/76561199002216348) | 蜡笔小蟹 |  |
+|  | [76561199002216348](https://steamcommunity.com/profiles/76561199002216348) | 蜡笔小蟹 |  |
 | Crazystarwar | [76561198426925179](https://steamcommunity.com/profiles/76561198426925179) |  |  |
 | Max Caulfield | [76561198101323037](https://steamcommunity.com/profiles/76561198101323037) |  |  |
 | noodle the sneck | [76561199229760980](https://steamcommunity.com/profiles/76561199229760980) |  |  |
@@ -261,7 +261,7 @@
 | Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
 | [ACE] RAPTOR | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
 | SuraSnlax | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
-| 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
+|  | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
 | 老七 | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
 | you kick me cuz ure bad | [76561199086244180](https://steamcommunity.com/profiles/76561199086244180) |  |  |
