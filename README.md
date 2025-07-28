@@ -222,7 +222,7 @@
 | 夕阳武士与狗， | [76561198294378412](https://steamcommunity.com/profiles/76561198294378412) |  |  |
 | ConfidentlyWrong | [76561198982424786](https://steamcommunity.com/profiles/76561198982424786) |  |  |
 | 大币币 | [76561199535817299](https://steamcommunity.com/profiles/76561199535817299) |  |  |
-| OnePunchMan69 | [76561198177980518](https://steamcommunity.com/profiles/76561198177980518) |  |  |
+|  | [76561198177980518](https://steamcommunity.com/profiles/76561198177980518) |  |  |
 | Storm | [76561198917360011](https://steamcommunity.com/profiles/76561198917360011) |  |  |
 | asennad | [76561199465912684](https://steamcommunity.com/profiles/76561199465912684) |  |  |
 | Stanstillplays | [76561198429941928](https://steamcommunity.com/profiles/76561198429941928) |  |  |
