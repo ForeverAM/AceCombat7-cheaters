@@ -6,6 +6,7 @@
 | Johnny \| it's just a game chill | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | Zatooo | [76561198426232443](https://steamcommunity.com/profiles/76561198426232443) |  |  |
 | Ocelot399 | [76561199085126090](https://steamcommunity.com/profiles/76561199085126090) |  |  |
 | Atlas | [76561198826655112](https://steamcommunity.com/profiles/76561198826655112) |  |  |
@@ -87,7 +88,6 @@
 | M. Félix | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
 | RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
-| Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) |  |  |
 | Dr.Kepler | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
 | Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
