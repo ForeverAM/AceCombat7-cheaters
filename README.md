@@ -61,7 +61,7 @@
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | TR7Undertaker | [76561198355506841](https://steamcommunity.com/profiles/76561198355506841) |  |  |
 | 弥生木靈 | [76561199029058407](https://steamcommunity.com/profiles/76561199029058407) |  |  |
-| Monac | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| blood | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Rin | [76561199364578791](https://steamcommunity.com/profiles/76561199364578791) |  |  |
 | Softvase | [76561199085560339](https://steamcommunity.com/profiles/76561199085560339) |  |  |
 | K9Z_Zeta | [76561199743577888](https://steamcommunity.com/profiles/76561199743577888) | Zetamin |  |
