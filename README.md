@@ -17,7 +17,7 @@
 | INoyanæ | [76561199401823112](https://steamcommunity.com/profiles/76561199401823112) |  |  |
 | Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
 | mahdimofid213 | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
-| railgun only | [76561199708481489](https://steamcommunity.com/profiles/76561199708481489) | Idz17 |  |
+| Blaze | [76561199708481489](https://steamcommunity.com/profiles/76561199708481489) | Idz17 |  |
 | 595615683 | [76561198335186846](https://steamcommunity.com/profiles/76561198335186846) |  |  |
 | 燄 | [76561198825033902](https://steamcommunity.com/profiles/76561198825033902) | 刄 |  |
 | koban3_jp | [76561199073231961](https://steamcommunity.com/profiles/76561199073231961) |  |  |
@@ -113,7 +113,7 @@
 | zakaclase | [76561198240455784](https://steamcommunity.com/profiles/76561198240455784) |  |  |
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
-| [BLHD]No.28_Crying_Wolf | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
+| Orbital Explosion | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
 | WDHBHHM | [76561198113027625](https://steamcommunity.com/profiles/76561198113027625) |  |  |
 | Emzyy | [76561199447102360](https://steamcommunity.com/profiles/76561199447102360) |  |  |
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
