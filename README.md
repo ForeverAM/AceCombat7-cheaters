@@ -133,9 +133,9 @@
 | HASAUEI | [76561198075692143](https://steamcommunity.com/profiles/76561198075692143) |  |  |
 | KEROSENE | [76561199575141589](https://steamcommunity.com/profiles/76561199575141589) |  |  |
 | ๋ | [76561198869410066](https://steamcommunity.com/profiles/76561198869410066) | Lacia |  |
-| あつこ | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
-| CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
-| 高木さん世界で最高だ | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
+|  | [76561199154791762](https://steamcommunity.com/profiles/76561199154791762) |  |  |
+|  | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
+|  | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
 | な | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
 | OOXX | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
