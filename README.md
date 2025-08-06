@@ -19,7 +19,7 @@
 | Zatooo | [76561198426232443](https://steamcommunity.com/profiles/76561198426232443) |  |  |
 | Ocelot399 | [76561199085126090](https://steamcommunity.com/profiles/76561199085126090) |  |  |
 | Atlas | [76561198826655112](https://steamcommunity.com/profiles/76561198826655112) |  |  |
-| 熱帯低気圧 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
+| REVELY | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Kamina's top guy | [76561198808378236](https://steamcommunity.com/profiles/76561198808378236) |  |  |
 | THE GOAT | [76561199849030505](https://steamcommunity.com/profiles/76561199849030505) |  |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
