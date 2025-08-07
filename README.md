@@ -6,9 +6,9 @@
 | Johnny \| it's just a game chill | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
-|  | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
-|  | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
-|  | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
+| 胡蝶しのぶ | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
+| Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
+| Kel, Angel Of Belka | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | spockobaka | [76561199378915205](https://steamcommunity.com/profiles/76561199378915205) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
@@ -264,10 +264,10 @@
 | jackykh | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
 | 180 | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
 | 180.2 | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
-| .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
-| Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
-| [ACE] RAPTOR | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
-| SuraSnlax | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
+|  | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
+|  | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
+|  | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
+|  | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
 | 老七 | [76561199070000800](https://steamcommunity.com/profiles/76561199070000800) |  |  |
