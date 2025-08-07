@@ -19,7 +19,7 @@
 | Zatooo | [76561198426232443](https://steamcommunity.com/profiles/76561198426232443) |  |  |
 | Ocelot399 | [76561199085126090](https://steamcommunity.com/profiles/76561199085126090) |  |  |
 | Atlas | [76561198826655112](https://steamcommunity.com/profiles/76561198826655112) |  |  |
-| REVELY | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
+| 胡蝶しのぶ | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Kamina's top guy | [76561198808378236](https://steamcommunity.com/profiles/76561198808378236) |  |  |
 | THE GOAT | [76561199849030505](https://steamcommunity.com/profiles/76561199849030505) |  |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
@@ -160,7 +160,7 @@
 | El Chavo | [76561198279192884](https://steamcommunity.com/profiles/76561198279192884) | 碧涵 |  |
 | el_cafezon | [76561198330062913](https://steamcommunity.com/profiles/76561198330062913) |  |  |
 | Grifter | [76561199559791137](https://steamcommunity.com/profiles/76561199559791137) |  |  |
-| Morty Kantheth | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
+| NH | [76561198055477808](https://steamcommunity.com/profiles/76561198055477808) |  |  |
 | goosethegooseyboose | [76561199122312731](https://steamcommunity.com/profiles/76561199122312731) |  |  |
 | Mostri2050 | [76561198876580116](https://steamcommunity.com/profiles/76561198876580116) |  |  |
 | Kasuito2555 | [76561198359448207](https://steamcommunity.com/profiles/76561198359448207) |  |  |
