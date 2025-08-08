@@ -6,7 +6,7 @@
 | Johnny \| it's just a game chill | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
 | fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
-| 胡蝶しのぶ | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
+| Rebery | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | Kel, Angel Of Belka | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
