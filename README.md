@@ -3,9 +3,6 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-| Johnny \| it's just a game chill | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
-| fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
-| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
 | Rebery | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
@@ -24,6 +21,9 @@
 | Kamina's top guy | [76561198808378236](https://steamcommunity.com/profiles/76561198808378236) |  |  |
 | THE GOAT | [76561199849030505](https://steamcommunity.com/profiles/76561199849030505) |  |  |
 | xEpic tea | [76561198010879459](https://steamcommunity.com/profiles/76561198010879459) |  |  |
+| Johnny \| it's just a game chill | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad |
+| fyhyugaefa | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
+| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
 | INoyanæ | [76561199401823112](https://steamcommunity.com/profiles/76561199401823112) |  |  |
 | Khalezy | [76561199150963881](https://steamcommunity.com/profiles/76561199150963881) |  |  |
 | mahdimofid213 | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
@@ -265,9 +265,9 @@
 | jackykh | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
 | 180 | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
 | 180.2 | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
-|  | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
-|  | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
-|  | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
+| .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
+| Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
+| [ACE] RAPTOR | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
 | SuraSnlax | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
