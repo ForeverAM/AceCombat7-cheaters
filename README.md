@@ -193,9 +193,9 @@
 | IonizedAtom | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
 | Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
 | ZY06 | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
-| minakosenpai | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
-| Teniente Muffin | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
-| The Author | [76561198881741459](https://steamcommunity.com/profiles/76561198881741459) | Monarch |  |
+|  | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
+|  | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
+|  | [76561198881741459](https://steamcommunity.com/profiles/76561198881741459) | Monarch |  |
 | rudukwc13 | [76561199223936931](https://steamcommunity.com/profiles/76561199223936931) |  |  |
 | 20S | [76561198930833258](https://steamcommunity.com/profiles/76561198930833258) |  |  |
 | kimono | [76561199373637935](https://steamcommunity.com/profiles/76561199373637935) |  |  |
