@@ -3,6 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
+| kais | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) |  |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
 | Matcha Latte | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
