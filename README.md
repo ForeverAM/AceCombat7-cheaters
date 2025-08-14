@@ -143,7 +143,7 @@
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | conesama | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
-| ナさん | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
+| 野菜ングマン工房 | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
 | Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
@@ -288,7 +288,7 @@
 | 葫芦娃 | [76561199116012716](https://steamcommunity.com/profiles/76561199116012716) |  |  |
 | spacewolves | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
 | Bad Influence | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
-| iRunmore4FU | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
+| -ezC_iRunmore4FU | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
 | 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
 | Player Tag Pending... | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
