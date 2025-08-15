@@ -3,7 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
-|  | [76561199050810242](https://steamcommunity.com/profiles/76561199050810242) |  |  |
+| ♥ MaRcKiToS ♥ | [76561199050810242](https://steamcommunity.com/profiles/76561199050810242) |  |  |
 | doge | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) |  |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
 | 風柱　不死川実弥 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
@@ -113,7 +113,7 @@
 | POLA97X | [76561198356113029](https://steamcommunity.com/profiles/76561198356113029) |  |  |
 | 情报员老秦 | [76561199505002057](https://steamcommunity.com/profiles/76561199505002057) | 情报员老秦 |  |
 | cdot2rap | [76561199520283653](https://steamcommunity.com/profiles/76561199520283653) |  |  |
-|  | [76561199096257101](https://steamcommunity.com/profiles/76561199096257101) |  |  |
+| Bread | [76561199096257101](https://steamcommunity.com/profiles/76561199096257101) |  |  |
 | *****isarubbish54188 | [76561199165893750](https://steamcommunity.com/profiles/76561199165893750) |  |  |
 | quijada_2212 | [76561199194351688](https://steamcommunity.com/profiles/76561199194351688) |  |  |
 | alexverissimo363 | [76561198830427352](https://steamcommunity.com/profiles/76561198830427352) |  |  |
@@ -189,7 +189,7 @@
 | Overlord | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
 | RED-DAX-XIII | [76561198345323408](https://steamcommunity.com/profiles/76561198345323408) |  |  |
 | Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
-|  | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
+| Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
 | Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
 | Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
 | IonizedAtom | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
@@ -222,8 +222,8 @@
 | 临琛 | [76561199474926894](https://steamcommunity.com/profiles/76561199474926894) | 风卷尘生 |  |
 | อิสระ VZOR | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
 | doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
-|  | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
-|  | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
+| ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
+| Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
 | Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
 | 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
 | spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
