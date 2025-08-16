@@ -3,6 +3,8 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
+| TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
+| heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | ♥ MaRcKiToS ♥ | [76561199050810242](https://steamcommunity.com/profiles/76561199050810242) |  |  |
 | doge | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) |  |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
@@ -47,7 +49,6 @@
 | Evrito | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
 | Morgana | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
-| TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | magipote | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
 | Leum.B_Kelly | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | 破天荒 | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
@@ -79,7 +80,6 @@
 | RDX_Neket | [76561199650989330](https://steamcommunity.com/profiles/76561199650989330) |  |  |
 | 阿雾绫 | [76561199317817093](https://steamcommunity.com/profiles/76561199317817093) |  |  |
 | leon07116 | [76561198016904903](https://steamcommunity.com/profiles/76561198016904903) |  |  |
-| heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | Blue Rose | [76561198398385657](https://steamcommunity.com/profiles/76561198398385657) |  |  |
 | LaPanne Motors | [76561198368764423](https://steamcommunity.com/profiles/76561198368764423) |  |  |
 | 已经无敌了 | [76561198173106266](https://steamcommunity.com/profiles/76561198173106266) |  |  |
