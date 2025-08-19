@@ -205,9 +205,9 @@
 | kimono | [76561199373637935](https://steamcommunity.com/profiles/76561199373637935) |  |  |
 | 蜡笔小蟹 | [76561199002216348](https://steamcommunity.com/profiles/76561199002216348) | 蜡笔小蟹 |  |
 | Crazystarwar | [76561198426925179](https://steamcommunity.com/profiles/76561198426925179) |  |  |
-|  | [76561198101323037](https://steamcommunity.com/profiles/76561198101323037) |  |  |
-|  | [76561199229760980](https://steamcommunity.com/profiles/76561199229760980) |  |  |
-|  | [76561199004004915](https://steamcommunity.com/profiles/76561199004004915) |  |  |
+| Max Caulfield | [76561198101323037](https://steamcommunity.com/profiles/76561198101323037) |  |  |
+| noodle the sneck | [76561199229760980](https://steamcommunity.com/profiles/76561199229760980) |  |  |
+| MagmaDash | [76561199004004915](https://steamcommunity.com/profiles/76561199004004915) |  |  |
 | ControlC | [76561198043036941](https://steamcommunity.com/profiles/76561198043036941) |  |  |
 | Sky | [76561199497116434](https://steamcommunity.com/profiles/76561199497116434) |  |  |
 | TheSpoodster | [76561198220391076](https://steamcommunity.com/profiles/76561198220391076) |  |  |
