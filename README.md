@@ -51,9 +51,9 @@
 | Evrito | [76561199544075601](https://steamcommunity.com/profiles/76561199544075601) |  |  |
 | Morgana | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
-|  | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
-|  | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
-|  | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
+| magipote | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
+| Leum.B_Kelly | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
+| 破天荒 | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | Profile Name | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
 | ?? | [76561199777977177](https://steamcommunity.com/profiles/76561199777977177) | PointBlank |  |
