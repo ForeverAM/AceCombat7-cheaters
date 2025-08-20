@@ -3,6 +3,7 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
+| Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
 | i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  |  |
 | nordstar | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Frequent&#32;name&#32;changes |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
@@ -41,7 +42,7 @@
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  |  |
 | nibba | [76561198929215067](https://steamcommunity.com/profiles/76561198929215067) |  |  |
 | 逍遥小仙翁 | [76561199224123229](https://steamcommunity.com/profiles/76561199224123229) |  |  |
-|  | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
+| Officer Balls | [76561199385458529](https://steamcommunity.com/profiles/76561199385458529) | ladiesman217 |  |
 | ayanbaraighost141 | [76561199241517841](https://steamcommunity.com/profiles/76561199241517841) |  |  |
 | YoiYoiDzuhki | [76561198531827523](https://steamcommunity.com/profiles/76561198531827523) |  |  |
 | Unknown_1500 | [76561199809956509](https://steamcommunity.com/profiles/76561199809956509) | awayancedricedward |  |
@@ -90,7 +91,6 @@
 | KatLuci | [76561199030551934](https://steamcommunity.com/profiles/76561199030551934) |  |  |
 | aease | [76561198805841062](https://steamcommunity.com/profiles/76561198805841062) |  |  |
 | Panavia Tornado7 | [76561199559441337](https://steamcommunity.com/profiles/76561199559441337) | Dawid49 |  |
-| Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
 | Mej.Fikri Iskandar | [76561199247186112](https://steamcommunity.com/profiles/76561199247186112) |  |  |
 | 特雷森食堂第一突破手 | [76561199075984719](https://steamcommunity.com/profiles/76561199075984719) |  |  |
 | I am trash | [76561199207878242](https://steamcommunity.com/profiles/76561199207878242) |  |  |
