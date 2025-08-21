@@ -4,7 +4,7 @@
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
 | Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Very&#32;bad |
-| Kel, Angel Of Belka | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;political&#32;insults,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
+| osuqncl | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;political&#32;insults,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | Leum.B_Kelly | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
 | i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  |  |
@@ -69,7 +69,7 @@
 | Oliveiraf | [76561198406113787](https://steamcommunity.com/profiles/76561198406113787) | Rodrigo&#32;Oliveira |  |
 | 刚买的飞机被打了 | [76561199549196217](https://steamcommunity.com/profiles/76561199549196217) | 1284829307 | Very&#32;bad |
 | papipapi7772000 | [76561199093661538](https://steamcommunity.com/profiles/76561199093661538) |  |  |
-| Rafa | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
+| Frost | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
 | nehz | [76561198390523516](https://steamcommunity.com/profiles/76561198390523516) |  |  |
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
 | のない | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
