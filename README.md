@@ -3,17 +3,18 @@
 
 | Name | Steam URL ID | Aliases | Note |
 | ------ | ------ | ------ | ------ |
+| Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Very&#32;bad |
+| ching chang chong | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes |
+| Leum.B_Kelly | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
 | i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  |  |
-| ching chang chong | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Frequent&#32;name&#32;changes |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | I Try Then Rage | [76561198097475152](https://steamcommunity.com/profiles/76561198097475152) |  |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | ♥ MaRcKiToS ♥ | [76561199050810242](https://steamcommunity.com/profiles/76561199050810242) |  |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
-| Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
-| Kel, Angel Of Belka | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
+| Kel, Angel Of Belka | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  | No&#32;malice |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | spockobaka | [76561199378915205](https://steamcommunity.com/profiles/76561199378915205) |  |  |
 | Sαηdmαn | [76561198021172153](https://steamcommunity.com/profiles/76561198021172153) | Pharaoh |  |
@@ -53,7 +54,6 @@
 | Morgana | [76561199746223919](https://steamcommunity.com/profiles/76561199746223919) |  |  |
 | NoobMaster6969 | [76561199498943010](https://steamcommunity.com/profiles/76561199498943010) |  |  |
 | magipote | [76561199788482093](https://steamcommunity.com/profiles/76561199788482093) | Yvonne |  |
-| Leum.B_Kelly | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | 破天荒 | [76561198980099902](https://steamcommunity.com/profiles/76561198980099902) |  |  |
 | wuyang | [76561198798948279](https://steamcommunity.com/profiles/76561198798948279) | 誌譐好侽人 |  |
 | Profile Name | [76561198069163237](https://steamcommunity.com/profiles/76561198069163237) | ChatGPT |  |
