@@ -5,13 +5,13 @@
 | ------ | ------ | ------ | ------ |
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
 | i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  |  |
-| edrich | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Frequent&#32;name&#32;changes |
+| ching chang chong | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Frequent&#32;name&#32;changes |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | I Try Then Rage | [76561198097475152](https://steamcommunity.com/profiles/76561198097475152) |  |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
 | ♥ MaRcKiToS ♥ | [76561199050810242](https://steamcommunity.com/profiles/76561199050810242) |  |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
-| REBELY | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
+| Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely |  |
 | Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | Kel, Angel Of Belka | [76561199005498017](https://steamcommunity.com/profiles/76561199005498017) |  |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
