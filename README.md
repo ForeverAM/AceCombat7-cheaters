@@ -147,10 +147,10 @@
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
 | N/A | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
-| Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
-| Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
-| Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) |  |  |
-| Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
+|  | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
+|  | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
+|  | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) |  |  |
+|  | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
 | 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
 | 活暗暗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
@@ -258,7 +258,7 @@
 | Wang_JJ | [76561198223744704](https://steamcommunity.com/profiles/76561198223744704) | 軒尼詩_WJ |  |
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
 | 1654391949 | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
-|  | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
+| CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
 | JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
 | Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Very&#32;bad |
 | Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
