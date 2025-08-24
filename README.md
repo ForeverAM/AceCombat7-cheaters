@@ -5,10 +5,10 @@
 | ------ | ------ | ------ | ------ |
 | Rebely | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Very&#32;bad |
 | ivlds | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;political&#32;insults,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| 1mo汉堡包 | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
-| Leum.B_Kelly | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
-| Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
-| i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  |  |
+|  | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
+|  | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
+|  | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) |  |  |
+|  | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
 | I Try Then Rage | [76561198097475152](https://steamcommunity.com/profiles/76561198097475152) |  |  |
 | heinrich | [76561198314550983](https://steamcommunity.com/profiles/76561198314550983) |  |  |
