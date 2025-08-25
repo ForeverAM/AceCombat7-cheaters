@@ -128,7 +128,7 @@
 | 官本武藏 | [76561199509409670](https://steamcommunity.com/profiles/76561199509409670) |  |  |
 | bury the light | [76561198799783195](https://steamcommunity.com/profiles/76561198799783195) |  |  |
 | 老七 | [76561198162143609](https://steamcommunity.com/profiles/76561198162143609) |  |  |
-| zakaclase | [76561198240455784](https://steamcommunity.com/profiles/76561198240455784) |  |  |
+|  | [76561198240455784](https://steamcommunity.com/profiles/76561198240455784) |  |  |
 | Ihr_Schatten_1018 | [76561199793561583](https://steamcommunity.com/profiles/76561199793561583) | Ihr_Schatten_1018 | Very&#32;bad |
 | 台湾第一男枪 陈桂林 | [76561198961251476](https://steamcommunity.com/profiles/76561198961251476) |  |  |
 | Halobeam | [76561199672316305](https://steamcommunity.com/profiles/76561199672316305) | ♥Oriana♥ |  |
