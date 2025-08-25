@@ -105,7 +105,7 @@
 | Dreamcatcher | [76561199233210122](https://steamcommunity.com/profiles/76561199233210122) |  |  |
 | VF | [76561198026812263](https://steamcommunity.com/profiles/76561198026812263) |  |  |
 | M. Félix | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
-|  | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
+| RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
 | Dr.Kepler | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
 | Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
@@ -275,9 +275,9 @@
 | jackykh | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
 | 180 | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
 | 180.2 | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
-| .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
-| Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
-| [ACE] RAPTOR | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
+|  | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
+|  | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
+|  | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
 | SuraSnlax | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
