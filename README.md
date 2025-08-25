@@ -79,7 +79,7 @@
 | Frost | [76561199038974533](https://steamcommunity.com/profiles/76561199038974533) |  |  |
 | nehz | [76561198390523516](https://steamcommunity.com/profiles/76561198390523516) |  |  |
 | peachy | [76561198115163007](https://steamcommunity.com/profiles/76561198115163007) |  |  |
-| のない | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
+|  | [76561199158862919](https://steamcommunity.com/profiles/76561199158862919) |  |  |
 | is5085237 | [76561199755649701](https://steamcommunity.com/profiles/76561199755649701) |  |  |
 | TR7Undertaker | [76561198355506841](https://steamcommunity.com/profiles/76561198355506841) |  |  |
 | 弥生木靈 | [76561199029058407](https://steamcommunity.com/profiles/76561199029058407) |  |  |
@@ -264,7 +264,7 @@
 | Wang_JJ | [76561198223744704](https://steamcommunity.com/profiles/76561198223744704) | 軒尼詩_WJ |  |
 | 阿肥 | [76561198892725495](https://steamcommunity.com/profiles/76561198892725495) |  |  |
 | 1654391949 | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
-| CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
+|  | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
 | JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
 | Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Very&#32;bad |
 | Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
