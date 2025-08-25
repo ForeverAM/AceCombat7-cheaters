@@ -275,9 +275,9 @@
 | jackykh | [76561198083979694](https://steamcommunity.com/profiles/76561198083979694) |  |  |
 | 180 | [76561198081430238](https://steamcommunity.com/profiles/76561198081430238) |  |  |
 | 180.2 | [76561199048027117](https://steamcommunity.com/profiles/76561199048027117) |  |  |
-|  | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
-|  | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
-|  | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
+| .i. | [76561198107896591](https://steamcommunity.com/profiles/76561198107896591) | BANDIT |  |
+| Genius | [76561198839646162](https://steamcommunity.com/profiles/76561198839646162) |  |  |
+| [ACE] RAPTOR | [76561198073103373](https://steamcommunity.com/profiles/76561198073103373) |  |  |
 | SuraSnlax | [76561198209173436](https://steamcommunity.com/profiles/76561198209173436) |  |  |
 | 九_州 | [76561198973679329](https://steamcommunity.com/profiles/76561198973679329) |  |  |
 | FireBrand | [76561198026289985](https://steamcommunity.com/profiles/76561198026289985) |  |  |
