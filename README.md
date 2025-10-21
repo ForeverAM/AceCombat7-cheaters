@@ -118,10 +118,10 @@
 | I am trash | [76561199207878242](https://steamcommunity.com/profiles/76561199207878242) |  |  |
 | longE_MC | [76561199243693978](https://steamcommunity.com/profiles/76561199243693978) |  | Very&#32;bad |
 | ryoichi.sakata | [76561198992622959](https://steamcommunity.com/profiles/76561198992622959) |  |  |
-| Dreamcatcher | [76561199233210122](https://steamcommunity.com/profiles/76561199233210122) |  |  |
-| VF | [76561198026812263](https://steamcommunity.com/profiles/76561198026812263) |  |  |
-| M. Félix | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
-| RangerNL12 | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
+|  | [76561199233210122](https://steamcommunity.com/profiles/76561199233210122) |  |  |
+|  | [76561198026812263](https://steamcommunity.com/profiles/76561198026812263) |  |  |
+|  | [76561199245898520](https://steamcommunity.com/profiles/76561199245898520) |  |  |
+|  | [76561199186195644](https://steamcommunity.com/profiles/76561199186195644) |  |  |
 | Dr.Kepler | [76561198390875668](https://steamcommunity.com/profiles/76561198390875668) |  |  |
 | powergerchus | [76561198368425918](https://steamcommunity.com/profiles/76561198368425918) |  |  |
 | Gon | [76561198090570349](https://steamcommunity.com/profiles/76561198090570349) | noahbenji |  |
@@ -212,11 +212,11 @@
 | 老司鸡 | [76561198443132230](https://steamcommunity.com/profiles/76561198443132230) |  |  |
 | Overlord | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
 | RED-DAX-XIII | [76561198345323408](https://steamcommunity.com/profiles/76561198345323408) |  |  |
-|  | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
-|  | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
-|  | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
-|  | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
-|  | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
+| Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
+| Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
+| Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
+| Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
+| IonizedAtom | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
 | Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
 | ZY06 | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
 | minakosenpai | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
