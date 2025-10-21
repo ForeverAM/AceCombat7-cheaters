@@ -223,13 +223,13 @@
 | Teniente Muffin | [76561199097646181](https://steamcommunity.com/profiles/76561199097646181) |  |  |
 | Der Kaiser | [76561198881741459](https://steamcommunity.com/profiles/76561198881741459) | Monarch |  |
 | rudukwc13 | [76561199223936931](https://steamcommunity.com/profiles/76561199223936931) |  |  |
-|  | [76561198930833258](https://steamcommunity.com/profiles/76561198930833258) |  |  |
-|  | [76561199373637935](https://steamcommunity.com/profiles/76561199373637935) |  |  |
-|  | [76561199002216348](https://steamcommunity.com/profiles/76561199002216348) | 蜡笔小蟹 |  |
-|  | [76561198426925179](https://steamcommunity.com/profiles/76561198426925179) |  |  |
+| 20S | [76561198930833258](https://steamcommunity.com/profiles/76561198930833258) |  |  |
+| kimono | [76561199373637935](https://steamcommunity.com/profiles/76561199373637935) |  |  |
+| 蜡笔小蟹 | [76561199002216348](https://steamcommunity.com/profiles/76561199002216348) | 蜡笔小蟹 |  |
+| Crazystarwar | [76561198426925179](https://steamcommunity.com/profiles/76561198426925179) |  |  |
 | Max Caulfield | [76561198101323037](https://steamcommunity.com/profiles/76561198101323037) |  |  |
 | noodle the sneck | [76561199229760980](https://steamcommunity.com/profiles/76561199229760980) |  |  |
-|  | [76561199004004915](https://steamcommunity.com/profiles/76561199004004915) |  |  |
+| MagmaDash | [76561199004004915](https://steamcommunity.com/profiles/76561199004004915) |  |  |
 | ControlC | [76561198043036941](https://steamcommunity.com/profiles/76561198043036941) |  |  |
 | Sky | [76561199497116434](https://steamcommunity.com/profiles/76561199497116434) |  |  |
 | TheSpoodster | [76561198220391076](https://steamcommunity.com/profiles/76561198220391076) |  |  |
@@ -247,10 +247,10 @@
 | พระเอกหนังงู | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
 | doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
 | ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
-|  | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
+| Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
 | Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
 | 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
-|  | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
+| spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
 | Ronin Eternal | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
 | 夕阳武士与狗， | [76561198294378412](https://steamcommunity.com/profiles/76561198294378412) |  |  |
 | ConfidentlyWrong | [76561198982424786](https://steamcommunity.com/profiles/76561198982424786) |  |  |
@@ -280,7 +280,7 @@
 | 1654391949 | [76561199071839304](https://steamcommunity.com/profiles/76561199071839304) |  |  |
 | CPLA | [76561199390199106](https://steamcommunity.com/profiles/76561199390199106) |  |  |
 | JAGOHO44 | [76561199310017870](https://steamcommunity.com/profiles/76561199310017870) |  |  |
-|  | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Very&#32;bad |
+| Staeni92 Youtube | [76561199412285976](https://steamcommunity.com/profiles/76561199412285976) |  | Very&#32;bad |
 | Vivo | [76561198990544647](https://steamcommunity.com/profiles/76561198990544647) |  |  |
 | iRatman_ | [76561198092502120](https://steamcommunity.com/profiles/76561198092502120) |  |  |
 | Deliver Us | [76561198043433411](https://steamcommunity.com/profiles/76561198043433411) |  |  |
