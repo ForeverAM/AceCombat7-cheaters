@@ -26,10 +26,10 @@
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
-|  | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Very&#32;bad,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
-|  | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
-|  | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
-|  | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
+| 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Very&#32;bad,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
+| 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
+| Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
+| i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
 | SadrakMc | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | Gotrush | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
