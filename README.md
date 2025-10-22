@@ -26,10 +26,10 @@
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
-| 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Very&#32;bad,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
-| 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
-| Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
-| i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
+|  | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Very&#32;bad,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
+|  | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
+|  | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
+|  | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
 | SadrakMc | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
 | LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | Gotrush | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
@@ -248,10 +248,10 @@
 | พระเอกหนังงู | [76561198398157745](https://steamcommunity.com/profiles/76561198398157745) |  |  |
 | doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
 | ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
-|  | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
-|  | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
-|  | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
-|  | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
+| Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
+| Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
+| 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
+| spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
 | Ronin Eternal | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
 | 夕阳武士与狗， | [76561198294378412](https://steamcommunity.com/profiles/76561198294378412) |  |  |
 | ConfidentlyWrong | [76561198982424786](https://steamcommunity.com/profiles/76561198982424786) |  |  |
