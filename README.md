@@ -6,7 +6,7 @@
 | 靖 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | VF | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | UltimatePC | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
-| CreamMaya | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Crybaby | Very&#32;bad,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
+| Meria | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Crybaby | Very&#32;bad,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
 | captain jimm | [76561198289197547](https://steamcommunity.com/profiles/76561198289197547) |  |  |
 | maskriderx00 | [76561199168735223](https://steamcommunity.com/profiles/76561199168735223) |  |  |
 | oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
@@ -308,9 +308,9 @@
 | 网上比街上热闹 | [76561199028490431](https://steamcommunity.com/profiles/76561199028490431) |  |  |
 | GUOZI ! | [76561198445457868](https://steamcommunity.com/profiles/76561198445457868) |  |  |
 | Hydra9 | [76561198368034387](https://steamcommunity.com/profiles/76561198368034387) |  |  |
-|  | [76561199116012716](https://steamcommunity.com/profiles/76561199116012716) |  |  |
-|  | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
-|  | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
+| 葫芦娃 | [76561199116012716](https://steamcommunity.com/profiles/76561199116012716) |  |  |
+| spacewolves | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
+| Bad Influence | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
 | -ezC_RougeRunner | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
 | 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
