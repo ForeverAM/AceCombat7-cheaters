@@ -23,11 +23,11 @@
 | Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
 | Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
-| sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
-| 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
-| Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
-| 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Very&#32;bad,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
-| 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
+|  | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
+|  | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
+|  | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
+|  | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Very&#32;bad,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
+|  | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
 | Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
 | i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
 | SadrakMc | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
@@ -37,10 +37,10 @@
 | !mpact | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
 | Sr.Sergio857 | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
 | 南北绿豆 | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
-| Vzntrical | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
-| seungri4562 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
-| Cadim | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
-| 1mo汉堡包 | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
+|  | [76561199864552848](https://steamcommunity.com/profiles/76561199864552848) |  |  |
+|  | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
+|  | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
+|  | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
 | Itsbatnam | [76561198045477748](https://steamcommunity.com/profiles/76561198045477748) |  |  |
 | 残虹 | [76561199049496733](https://steamcommunity.com/profiles/76561199049496733) |  |  |
 | Sowrd in the cloud | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
@@ -307,10 +307,10 @@
 | Alipapa | [76561199032447430](https://steamcommunity.com/profiles/76561199032447430) |  |  |
 | 网上比街上热闹 | [76561199028490431](https://steamcommunity.com/profiles/76561199028490431) |  |  |
 | GUOZI ! | [76561198445457868](https://steamcommunity.com/profiles/76561198445457868) |  |  |
-| Hydra9 | [76561198368034387](https://steamcommunity.com/profiles/76561198368034387) |  |  |
-| 葫芦娃 | [76561199116012716](https://steamcommunity.com/profiles/76561199116012716) |  |  |
-| spacewolves | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
-| Bad Influence | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
+|  | [76561198368034387](https://steamcommunity.com/profiles/76561198368034387) |  |  |
+|  | [76561199116012716](https://steamcommunity.com/profiles/76561199116012716) |  |  |
+|  | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
+|  | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
 | -ezC_RougeRunner | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
 | 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
 | Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
