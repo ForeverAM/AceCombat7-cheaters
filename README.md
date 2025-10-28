@@ -171,11 +171,11 @@
 | な | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
-|  | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
+| Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
 | Fake Simon3 | [76561199475570948](https://steamcommunity.com/profiles/76561199475570948) |  |  |
 | Blahaj supremacy | [76561198897831595](https://steamcommunity.com/profiles/76561198897831595) | Blahaj&#32;supremacy |  |
 | SSSchwarz | [76561198446971768](https://steamcommunity.com/profiles/76561198446971768) | SSSchwarz |  |
-|  | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
+| 76561199304050583 | [76561199304050583](https://steamcommunity.com/profiles/76561199304050583) |  | Very&#32;bad |
 | 活暗暗 | [76561198816925680](https://steamcommunity.com/profiles/76561198816925680) |  |  |
 | 敷衍大王 | [76561199092155231](https://steamcommunity.com/profiles/76561199092155231) | 吉他 |  |
 | 方塊酥 | [76561199444803497](https://steamcommunity.com/profiles/76561199444803497) |  |  |
