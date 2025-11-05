@@ -41,7 +41,7 @@
 | seungri4562 | [76561199240386234](https://steamcommunity.com/profiles/76561199240386234) |  |  |
 | Cadim | [76561198136279568](https://steamcommunity.com/profiles/76561198136279568) |  |  |
 | 1mo汉堡包 | [76561198287981743](https://steamcommunity.com/profiles/76561198287981743) |  |  |
-|  | [76561198045477748](https://steamcommunity.com/profiles/76561198045477748) |  |  |
+| Itsbatnam | [76561198045477748](https://steamcommunity.com/profiles/76561198045477748) |  |  |
 | 残虹 | [76561199049496733](https://steamcommunity.com/profiles/76561199049496733) |  |  |
 | Sowrd in the cloud | [76561198963991931](https://steamcommunity.com/profiles/76561198963991931) | 必勝空戰 |  |
 | TANAKA Makio | [76561199036761417](https://steamcommunity.com/profiles/76561199036761417) |  |  |
