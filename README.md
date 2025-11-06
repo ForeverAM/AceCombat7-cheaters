@@ -28,10 +28,10 @@
 | Enterprise | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
 | 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Very&#32;bad,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
 | 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
-| Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
-| i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
-| SadrakMc | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
-| LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
+|  | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
+|  | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
+|  | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
+|  | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
 | Gotrush | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
 | Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | !mpact | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
@@ -198,10 +198,10 @@
 | jjthesteve000 | [76561198893141948](https://steamcommunity.com/profiles/76561198893141948) |  |  |
 | RougeLarme | [76561198018473837](https://steamcommunity.com/profiles/76561198018473837) |  |  |
 | ShadowGamer101st | [76561198008523364](https://steamcommunity.com/profiles/76561198008523364) | ShadowGamer101st |  |
-| 处处吻✈ | [76561198980204295](https://steamcommunity.com/profiles/76561198980204295) |  |  |
-| Aerospace8 | [76561198117229678](https://steamcommunity.com/profiles/76561198117229678) |  |  |
-| DJMAX | [76561199581609988](https://steamcommunity.com/profiles/76561199581609988) |  |  |
-| Arepa | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | ND-HE |  |
+|  | [76561198980204295](https://steamcommunity.com/profiles/76561198980204295) |  |  |
+|  | [76561198117229678](https://steamcommunity.com/profiles/76561198117229678) |  |  |
+|  | [76561199581609988](https://steamcommunity.com/profiles/76561199581609988) |  |  |
+|  | [76561199496733098](https://steamcommunity.com/profiles/76561199496733098) | ND-HE |  |
 | sfasijo | [76561198358276789](https://steamcommunity.com/profiles/76561198358276789) |  |  |
 | 532977060 | [76561198444660192](https://steamcommunity.com/profiles/76561198444660192) |  |  |
 | KINIX | [76561198367447457](https://steamcommunity.com/profiles/76561198367447457) |  |  |
