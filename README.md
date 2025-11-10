@@ -32,10 +32,10 @@
 | 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
 | Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
 | i_am_none77 | [76561199868607161](https://steamcommunity.com/profiles/76561199868607161) |  | Very&#32;bad |
-| SadrakMc | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
-| LOCH33 | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
-| Gotrush | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
-| Солнце | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
+|  | [76561199259668547](https://steamcommunity.com/profiles/76561199259668547) |  |  |
+|  | [76561198206916607](https://steamcommunity.com/profiles/76561198206916607) |  |  |
+|  | [76561198116341436](https://steamcommunity.com/profiles/76561198116341436) |  |  |
+|  | [76561198898699339](https://steamcommunity.com/profiles/76561198898699339) |  |  |
 | !mpact | [76561198196230139](https://steamcommunity.com/profiles/76561198196230139) |  |  |
 | Sr.Sergio857 | [76561199169038829](https://steamcommunity.com/profiles/76561199169038829) |  |  |
 | 南北绿豆 | [76561199342871798](https://steamcommunity.com/profiles/76561199342871798) |  |  |
