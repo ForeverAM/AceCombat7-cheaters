@@ -13,11 +13,11 @@
 | SalemTheYeen | [76561199095781454](https://steamcommunity.com/profiles/76561199095781454) |  |  |
 | pills here | [76561198289197547](https://steamcommunity.com/profiles/76561198289197547) |  |  |
 | maskriderx00 | [76561199168735223](https://steamcommunity.com/profiles/76561199168735223) |  |  |
-|  | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
-|  | [76561198786955094](https://steamcommunity.com/profiles/76561198786955094) |  |  |
-|  | [76561199877371190](https://steamcommunity.com/profiles/76561199877371190) |  |  |
-|  | [76561199216308131](https://steamcommunity.com/profiles/76561199216308131) |  |  |
-|  | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
+| oplang13 | [76561199759680199](https://steamcommunity.com/profiles/76561199759680199) |  |  |
+| Mark | [76561198786955094](https://steamcommunity.com/profiles/76561198786955094) |  |  |
+| 380586338 | [76561199877371190](https://steamcommunity.com/profiles/76561199877371190) |  |  |
+| Rocovis#F71 | [76561199216308131](https://steamcommunity.com/profiles/76561199216308131) |  |  |
+| Surgitel | [76561199868171149](https://steamcommunity.com/profiles/76561199868171149) |  |  |
 | suzune_jp | [76561199528859685](https://steamcommunity.com/profiles/76561199528859685) |  |  |
 | 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | 271097752 | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
@@ -158,10 +158,10 @@
 | Majin_Buubies | [76561199165329754](https://steamcommunity.com/profiles/76561199165329754) |  |  |
 | zek•s | [76561198206731741](https://steamcommunity.com/profiles/76561198206731741) |  |  |
 | SaibaMomoi | [76561198989140840](https://steamcommunity.com/profiles/76561198989140840) | YppahnU |  |
-| Playboy·S | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
-| 东栩 | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
-| The Harbinger of Death | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
-| LOBO1975 | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
+|  | [76561198448282067](https://steamcommunity.com/profiles/76561198448282067) |  |  |
+|  | [76561199261241054](https://steamcommunity.com/profiles/76561199261241054) |  |  |
+|  | [76561199404905416](https://steamcommunity.com/profiles/76561199404905416) |  |  |
+|  | [76561198143645427](https://steamcommunity.com/profiles/76561198143645427) |  |  |
 | 1829824256 | [76561199757824462](https://steamcommunity.com/profiles/76561199757824462) |  |  |
 | 未来の社畜 | [76561199564901138](https://steamcommunity.com/profiles/76561199564901138) | やふゆる_Vtuber |  |
 | Yellow 13 | [76561199758677819](https://steamcommunity.com/profiles/76561199758677819) |  |  |
@@ -316,7 +316,7 @@
 | spacewolves | [76561198176636826](https://steamcommunity.com/profiles/76561198176636826) |  |  |
 | Bad Influence | [76561199201981441](https://steamcommunity.com/profiles/76561199201981441) |  |  |
 | -ezC_RougeRunner | [76561198080498773](https://steamcommunity.com/profiles/76561198080498773) |  |  |
-|  | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
-|  | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
-|  | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
-|  | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
+| 帝宝 | [76561199214277508](https://steamcommunity.com/profiles/76561199214277508) |  |  |
+| Arch | [76561198161141089](https://steamcommunity.com/profiles/76561198161141089) |  |  |
+| Player Tag Pending... | [76561198035733380](https://steamcommunity.com/profiles/76561198035733380) |  |  |
+| GT-Force | [76561198027532793](https://steamcommunity.com/profiles/76561198027532793) |  |  |
