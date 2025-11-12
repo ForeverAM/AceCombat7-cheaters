@@ -7,6 +7,7 @@
 | fortuneball | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | 一般人 | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
 | Turbo Stream Cat1477 | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Crybaby | Very&#32;bad,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
+| ZeroAlsace | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
 | Spare 15 | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
 | zullzy | [76561199606753298](https://steamcommunity.com/profiles/76561199606753298) |  |  |
 | SalemTheYeen | [76561199095781454](https://steamcommunity.com/profiles/76561199095781454) |  |  |
@@ -171,7 +172,7 @@
 | CNEOS1-kryo | [76561199590949305](https://steamcommunity.com/profiles/76561199590949305) |  |  |
 | conesama | [76561199025138813](https://steamcommunity.com/profiles/76561199025138813) |  |  |
 | Mr.SY | [76561198443659202](https://steamcommunity.com/profiles/76561198443659202) |  |  |
-| 野菜工房 | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
+| Yasai | [76561198869878353](https://steamcommunity.com/profiles/76561198869878353) | な |  |
 | ㄇㄉㄈㄎ | [76561198818703363](https://steamcommunity.com/profiles/76561198818703363) | 3D |  |
 | Carpet | [76561198133305602](https://steamcommunity.com/profiles/76561198133305602) |  |  |
 | Tsu | [76561198850362167](https://steamcommunity.com/profiles/76561198850362167) | Bravo |  |
