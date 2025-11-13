@@ -22,10 +22,10 @@
 | 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | 271097752 | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
 | SALIVAN | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
-|  | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
-|  | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad,&#32;Frequent&#32;name&#32;changes |
-|  | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
-|  | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
+| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+| Johnny (Hacker was stupid) | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad,&#32;Frequent&#32;name&#32;changes |
+| Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
+| Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
@@ -230,11 +230,11 @@
 | rudukwc13 | [76561199223936931](https://steamcommunity.com/profiles/76561199223936931) |  |  |
 | 20S | [76561198930833258](https://steamcommunity.com/profiles/76561198930833258) |  |  |
 | kimono | [76561199373637935](https://steamcommunity.com/profiles/76561199373637935) |  |  |
-| 蜡笔小蟹 | [76561199002216348](https://steamcommunity.com/profiles/76561199002216348) | 蜡笔小蟹 |  |
-| Crazystarwar | [76561198426925179](https://steamcommunity.com/profiles/76561198426925179) |  |  |
-| Max Caulfield | [76561198101323037](https://steamcommunity.com/profiles/76561198101323037) |  |  |
-| noodle the sneck | [76561199229760980](https://steamcommunity.com/profiles/76561199229760980) |  |  |
-| MagmaDash | [76561199004004915](https://steamcommunity.com/profiles/76561199004004915) |  |  |
+|  | [76561199002216348](https://steamcommunity.com/profiles/76561199002216348) | 蜡笔小蟹 |  |
+|  | [76561198426925179](https://steamcommunity.com/profiles/76561198426925179) |  |  |
+|  | [76561198101323037](https://steamcommunity.com/profiles/76561198101323037) |  |  |
+|  | [76561199229760980](https://steamcommunity.com/profiles/76561199229760980) |  |  |
+|  | [76561199004004915](https://steamcommunity.com/profiles/76561199004004915) |  |  |
 | ControlC | [76561198043036941](https://steamcommunity.com/profiles/76561198043036941) |  |  |
 | Sky | [76561199497116434](https://steamcommunity.com/profiles/76561199497116434) |  |  |
 | TheSpoodster | [76561198220391076](https://steamcommunity.com/profiles/76561198220391076) |  |  |
