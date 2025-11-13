@@ -22,10 +22,10 @@
 | 𝓼𝓸𝓵𝓪 | [76561198381089403](https://steamcommunity.com/profiles/76561198381089403) |  |  |
 | 271097752 | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
 | SALIVAN | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
-| Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
-| Johnny (Hacker was stupid) | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad,&#32;Frequent&#32;name&#32;changes |
-| Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
-| Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
+|  | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
+|  | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad,&#32;Frequent&#32;name&#32;changes |
+|  | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
+|  | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
@@ -253,10 +253,10 @@
 | doom | [76561199227155475](https://steamcommunity.com/profiles/76561199227155475) |  |  |
 | ナンとピロシキ | [76561198301029341](https://steamcommunity.com/profiles/76561198301029341) | 田中脊髄剣 |  |
 | Pyridine | [76561198817889927](https://steamcommunity.com/profiles/76561198817889927) |  |  |
-|  | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
-|  | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
-|  | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
-|  | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
+| Filp Bogle | [76561198328779734](https://steamcommunity.com/profiles/76561198328779734) |  |  |
+| 孫郎竟云何? | [76561198953392478](https://steamcommunity.com/profiles/76561198953392478) |  |  |
+| spartus06 | [76561198304384143](https://steamcommunity.com/profiles/76561198304384143) |  |  |
+| Ronin Eternal | [76561198150304103](https://steamcommunity.com/profiles/76561198150304103) |  |  |
 | 夕阳武士与狗， | [76561198294378412](https://steamcommunity.com/profiles/76561198294378412) |  |  |
 | ConfidentlyWrong | [76561198982424786](https://steamcommunity.com/profiles/76561198982424786) |  |  |
 | 大币币 | [76561199535817299](https://steamcommunity.com/profiles/76561199535817299) |  |  |
