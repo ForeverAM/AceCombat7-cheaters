@@ -6,7 +6,7 @@
 | 靖 | [76561198861931833](https://steamcommunity.com/profiles/76561198861931833) | ASJ | Very&#32;bad |
 | fortuneball | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | 通りすがりのパイロッ | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
-| Sky's loser | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Crybaby | Very&#32;bad,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
+| Spike | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Crybaby | Very&#32;bad,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
 | ZeroAlsace | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
 | Spare 15 | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
 | zullzy | [76561199606753298](https://steamcommunity.com/profiles/76561199606753298) |  |  |
