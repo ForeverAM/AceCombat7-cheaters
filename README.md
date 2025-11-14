@@ -7,6 +7,8 @@
 | fortuneball | [76561198379251619](https://steamcommunity.com/profiles/76561198379251619) | guivalla | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | 初心者パイロット | [76561199103147131](https://steamcommunity.com/profiles/76561199103147131) | Rebely | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Hid&#32;his&#32;game&#32;library |
 | Spike | [76561198787726253](https://steamcommunity.com/profiles/76561198787726253) | Crybaby | Very&#32;bad,&#32;Rebely's&#32;alternate&#32;account,&#32;Frequent&#32;name&#32;changes |
+| king72613 | [76561199143307584](https://steamcommunity.com/profiles/76561199143307584) |  |  |
+| Lexington | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
 | ZeroAlsace | [76561199499257065](https://steamcommunity.com/profiles/76561199499257065) |  |  |
 | Spare 15 | [76561199891594457](https://steamcommunity.com/profiles/76561199891594457) |  |  |
 | zullzy | [76561199606753298](https://steamcommunity.com/profiles/76561199606753298) |  |  |
@@ -29,7 +31,6 @@
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
 | sixfiguredebt | [76561199223435151](https://steamcommunity.com/profiles/76561199223435151) |  | Very&#32;bad |
 | 无瑕の小天使 | [76561199158658113](https://steamcommunity.com/profiles/76561199158658113) |  | Very&#32;bad |
-| Lexington | [76561198180593561](https://steamcommunity.com/profiles/76561198180593561) | Enterprise |  |
 | 江泽民 | [76561198329707303](https://steamcommunity.com/profiles/76561198329707303) |  | Very&#32;bad,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive |
 | 世界第一 | [76561198303281186](https://steamcommunity.com/profiles/76561198303281186) |  |  |
 | Sukhoi | [76561199886547985](https://steamcommunity.com/profiles/76561199886547985) |  |  |
@@ -218,10 +219,10 @@
 | Overlord | [76561198829863126](https://steamcommunity.com/profiles/76561198829863126) | Skyle@der |  |
 | RED-DAX-XIII | [76561198345323408](https://steamcommunity.com/profiles/76561198345323408) |  |  |
 | Filltap | [76561198151947614](https://steamcommunity.com/profiles/76561198151947614) |  |  |
-| Chuck | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
-| Strider | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
-| Crimson | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
-| IonizedAtom | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
+|  | [76561198961226717](https://steamcommunity.com/profiles/76561198961226717) |  |  |
+|  | [76561198994345306](https://steamcommunity.com/profiles/76561198994345306) | Mister&#32;Tartaria |  |
+|  | [76561198256021122](https://steamcommunity.com/profiles/76561198256021122) |  |  |
+|  | [76561198103844413](https://steamcommunity.com/profiles/76561198103844413) |  |  |
 | Hellpiercer | [76561199221096519](https://steamcommunity.com/profiles/76561199221096519) |  |  |
 | ZY06 | [76561199229848829](https://steamcommunity.com/profiles/76561199229848829) |  |  |
 | minakosenpai | [76561198139082588](https://steamcommunity.com/profiles/76561198139082588) |  |  |
@@ -272,7 +273,7 @@
 | La Gordah Muñones | [76561198396903167](https://steamcommunity.com/profiles/76561198396903167) |  |  |
 | alpha | [76561198319585202](https://steamcommunity.com/profiles/76561198319585202) |  |  |
 | H_NGM_N | [76561199433034628](https://steamcommunity.com/profiles/76561199433034628) |  |  |
-|  | [76561198036859894](https://steamcommunity.com/profiles/76561198036859894) |  |  |
+| Nota | [76561198036859894](https://steamcommunity.com/profiles/76561198036859894) |  |  |
 | PrayerAnswer | [76561199216430196](https://steamcommunity.com/profiles/76561199216430196) |  |  |
 | DagZede | [76561198127073615](https://steamcommunity.com/profiles/76561198127073615) |  |  |
 | seanpowellonemanband | [76561198854660782](https://steamcommunity.com/profiles/76561198854660782) |  |  |
