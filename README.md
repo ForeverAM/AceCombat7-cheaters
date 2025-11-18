@@ -26,7 +26,7 @@
 | 271097752 | [76561198833098058](https://steamcommunity.com/profiles/76561198833098058) |  |  |
 | SALIVAN | [76561199413820695](https://steamcommunity.com/profiles/76561199413820695) |  |  |
 | Morgan | [76561199245272853](https://steamcommunity.com/profiles/76561199245272853) |  | Very&#32;bad |
-| Johnny (Hacker was stupid) | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad,&#32;Frequent&#32;name&#32;changes |
+| ForeverAM | [76561199812329207](https://steamcommunity.com/profiles/76561199812329207) | Johnny | Very&#32;bad,&#32;Frequent&#32;name&#32;changes |
 | Lunaso0 | [76561198046742690](https://steamcommunity.com/profiles/76561198046742690) |  |  |
 | Pixy | [76561199474482517](https://steamcommunity.com/profiles/76561199474482517) | Azrael |  |
 | novilen | [76561198432223463](https://steamcommunity.com/profiles/76561198432223463) | kais | Very&#32;bad,&#32;Frequent&#32;name&#32;changes,&#32;Using&#32;names&#32;that&#32;involve&#32;politicaly&#32;sensitive,&#32;using&#32;the&#32;name&#32;of&#32;someone&#32;who&#32;angered&#32;him |
