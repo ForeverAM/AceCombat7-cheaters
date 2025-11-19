@@ -1,4 +1,7 @@
 # AceCombat7 cheaters
+Due to certain reasons, this old list is about to stop updating. Please visit the new list link below "About" in the upper right corner of the page
+
+由于某些原因，此旧名单即将停止更新，请访问页面右上角“About”下面的新名单链接
 
 
 | Name | Steam URL ID | Aliases | Note |
