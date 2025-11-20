@@ -18,5 +18,5 @@ jobs:
     - name: cheaters_update
       run: |
         bash ./.github/cheaters_update.sh
-        bash ./.github/git_push.sh
+        bash ./.github/git_push
 
