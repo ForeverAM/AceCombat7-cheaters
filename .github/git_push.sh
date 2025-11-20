@@ -1,5 +1,5 @@
 git config user.name "ForeverAM"
-git config user.email "foreveram@foxmail.com"
+git config user.email "3579498254489@foxmail.com"
 
 cha=`git status -s`
 upd=`expr length "$cha"`
