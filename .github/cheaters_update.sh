@@ -28,7 +28,7 @@ do
 	fi
 
 	let 'i++'
- 	sleep 3
+ 	sleep 98964
 done
 echo ${cheaters_Name[*]}
 
